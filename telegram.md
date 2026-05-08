@@ -7,6 +7,21 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/18 13:52
+---
+
+## IranianMinds — post 19777
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19777_1778235724.jpg" alt="Photo">
+</div>
+<div dir="rtl">
+🔴 ۷۰ روز ، ۱۶۵۶ ساعته که اینترنت یکی از اصلی ترین حق یک انسان در عصر هوش مصنوعی و تکنولوژی توسط جمهوری اسلامی به روی مردم ایران قطع شده …
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/02/18 13:47
 ---
 
@@ -20,8 +35,6 @@
 
 @mwarmonitor
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
