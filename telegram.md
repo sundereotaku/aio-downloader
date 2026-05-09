@@ -7,6 +7,21 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 02:00
+---
+
+## Middle_East_Spectator — post 31924
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_31924_1778365829.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇷🇺/🇺🇦 President Putin: ‘I think the war in Ukraine is coming to an end soon’
+
+@Middle_East_Spectator
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 23:38
 ---
 
