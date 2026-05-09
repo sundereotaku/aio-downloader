@@ -7,6 +7,93 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 23:38
+---
+
+## KiranTimes — post 1056
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1056_1778357290.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Middle_East_Spectator — post 31923
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_31923_1778357291.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇮🇷/
+🇮🇷 NEW: The IRGC Navy announces that from now on, any attack against Iranian oil tankers or commercial vessels will be met with a response against U.S. bases / proxies in the region and ships
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31922
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— Reminder, we take ads
+
+@Elias_MES for inquiries.
+</div>
+
+## Middle_East_Spectator — post 31921
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_31921_1778357292.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷 NEW: Iranian mobile launchers were seen moving across various different provinces today
+
+@Middle_East_Spectator
+</div>
+
+## LiveMuseumOfIgnorancy — post 11498
+
+<div align="center">
+  <img src="telegram/content/LiveMuseumOfIgnorancy_11498_1778357292.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## animenewsnetwork_feed — post 41512
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41512_1778357293.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Pragmata Game Crosses 2 Million Units Sold Worldwide
+
+Game reaches milestone within 16 days of launch
+</div>
+
+## animenewsnetwork_feed — post 41511
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41511_1778357293.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Daemons of the Shadow Realm Anime Casts Shinichirō Miki
+
+Ivan Yosano appeared in episode 6
+</div>
+
+## animenewsnetwork_feed — post 41510
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41510_1778357294.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Akane-banashi Anime's New Video Previews Karaku Cup Arc
+
+Anime teases student rakugo tournament
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 21:08
 ---
 
