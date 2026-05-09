@@ -7,6 +7,247 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 21:08
+---
+
+## Configshub2 — post 1681141
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+𝘾𝙤𝙣𝙛𝙞𝙜𝙨𝙃𝙪𝙗🖤 pinned «تا تمدید شه و روشنش کنم اگه کسی خواست اختصاصی متصل بخره بت قیمت معقول به پشتیبانی سرویس پیام بده @EkhMelli4»
+</div>
+
+## sugoileaks — post 3913
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New KV & PV For Ongoing Coming-of-age Artist Drama Anime "AKANE-BANASHI" Featuring The Upcoming KARAKU CUP Arc!! EP6 Aired Today. EP7 will Premiere Next Saturday on May 16, 2026!! Studio: ZEXCS Main Cast: Akane Osaki | CV: Anna Nagase Karashi Nerimaya |…
+</div>
+
+## sugoileaks — post 3912
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3912_1778348325.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New KV & PV For Ongoing Coming-of-age Artist Drama Anime "AKANE-BANASHI" Featuring The Upcoming KARAKU CUP Arc!!
+
+EP6 Aired Today.
+EP7 will Premiere Next Saturday on May 16, 2026!!
+
+Studio: ZEXCS
+
+Main Cast:
+Akane Osaki | CV: Anna Nagase
+Karashi Nerimaya | CV: Takuya Eguchi
+Hikaru Koragi | CV: Rie Takahashi
+Shinta Arakawa (Tohru Osaki) | CV: Jun Fukuyama
+Maikeru Arakawa | CV: Nobunaga Shimazaki
+Koguma Arakawa | CV: Chiaki Kobayashi
+Kyoji Arakawa | CV: Yohei Azakami
+Guriko Arakawa | CV: Seiichiro Yamashita
+
+
+Based on the Coming-of-age Artist Drama Manga by Takamasa Moue.
+
+SUMMARY:
+"With only your voice and body—master the art."
+Akane Osaki, captivated since childhood by the magical performances of her father, Shinta Arakawa, witnesses a shocking incident during his decisive performance for promotion to shin'uchi (master rank).
+Six years later, now a high school student, she sets her sights on becoming a shin'uchi herself—pushing forward in the highly competitive world of rakugo.
+A passionate and authentic rakugo drama begins now!
+
+STAFF:
+Director: Ayumu Watanabe
+Ass Director: Yu Harima
+Series Comp & Script: Michihiro Tsuchiya
+Character Design & Chief Animation Director: Kii Tanaka
+Sub-Character Design & Chief Animation Director: Yasunari Nitta
+Chief Animation Director: Hisashi Kagawa
+Costume Design: Noriko Shimazawa
+Prop Design: Yoshinori Iwanaga
+Art Design: Shūhei Tada
+Art: Takumi Sakurada
+Color Design: Saori Goda
+Photography Director: Yūta Nakamura
+Editor: Kiyoshi Hirose
+Rakugo Supervisor: Kikuhiko Hayashiya
+Sound Director: Noriyoshi Konuma
+Music: Akio Izutsu
+</div>
+
+## sugoileaks — post 3911
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3911_1778348328.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ROSHIDERE MAID DAY
+</div>
+
+## KiranTimes — post 1055
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1055_1778348329.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Are these niggas this blind
+</div>
+
+## KiranTimes — post 1053
+
+
+
+
+## cyberfiend666 — post 32692
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32692_1778348330.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32691
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32691_1778348331.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32690
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32690_1778348332.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32689
+
+<div align="center">
+  <a href="telegram/content/cyberfiend666_32689_1778348333.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## cyberfiend666 — post 32688
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32688_1778348336.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32687
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32687_1778348337.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32686
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32686_1778348337.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Middle_East_Spectator — post 31920
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_31920_1778348338.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱/
+🇮🇷 NOTE: Hezbollah has also started using FPV drones in settlements and IDF positions in Northern Israel
+
+Due to the constant buzzing and threat of these drones, the IDF has significantly reduced its presence.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31918
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_31918_1778348340.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱/
+🇮🇷 NEW: Hezbollah uploaded two videos showing direct FPV drone impacts on Israeli soldiers
+
+@Middle_East_Spectator
+</div>
+
+## LiveMuseumOfIgnorancy — post 11497
+
+<div align="center">
+  <img src="telegram/content/LiveMuseumOfIgnorancy_11497_1778348343.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## DailyJapaneseThread — post 6685
+
+<div align="center">
+  <a href="telegram/content/DailyJapaneseThread_6685_1778348344.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## DailyJapaneseThread — post 6684
+
+<div align="center">
+  <a href="telegram/content/DailyJapaneseThread_6684_1778348346.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## animenewsnetwork_feed — post 41509
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41509_1778348349.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Site Branded as Illegal Webtoon Site Newtoki Reappears Ahead of Korea's Emergency Blocking System
+
+Site resurfaced 1 day after original site announced shutdown last month
+</div>
+
+## animenewsnetwork_feed — post 41508
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41508_1778348349.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+True Love Fades Away When the Contract Ends Volume 1-2 Novel Review
+
+If you're looking for an accomplished heroine, a hero with more feelings than he's aware of, and a comfortably realized world, this is the series for you.
+</div>
+
+## animenewsnetwork_feed — post 41507
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41507_1778348350.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Korea Fair Trade Commission Launches Probe into Webtoon, Web Novel Industry Practices
+
+Commission plans to survey more than 100 companies including major domestic platforms, content providers
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 17:52
 ---
 
