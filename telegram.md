@@ -7,6 +7,144 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 11:06
+---
+
+## Configshub2 — post 1681142
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+𝘾𝙤𝙣𝙛𝙞𝙜𝙨𝙃𝙪𝙗🖤 pinned «تا تمدید شه و روشنش کنم اگه کسی خواست اختصاصی متصل بخره بت قیمت معقول به پشتیبانی سرویس پیام بده @EkhMelli4»
+</div>
+
+## sugoileaks — post 3918
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3918_1778398595.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Anime news soon!
+
+GIF is not related!
+</div>
+
+## sugoileaks — post 3917
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3917_1778398595.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## sugoileaks — post 3916
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+KyoAni Movie line-up for 2027.
+</div>
+
+## KangZone — post 32239
+
+<div align="center">
+  <img src="telegram/content/KangZone_32239_1778398597.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KangZone — post 32238
+
+<div align="center">
+  <a href="telegram/content/KangZone_32238_1778398598.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## KangZone — post 32234
+
+<div align="center">
+  <img src="telegram/content/KangZone_32234_1778398598.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KangZone — post 32233
+
+<div align="center">
+  <a href="telegram/content/KangZone_32233_1778398599.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## KiranTimes — post 1057
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1057_1778398600.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این نوع چنلا اتفاقاً بهترین سوپاپ اطمینان ج.ا حساب میشن چون از یه طرف مخالفین نظامو بد نشون میدن و از طرفی سوخت نفرت میشن برای ارزشی جماعت
+</div>
+
+## animenewsnetwork_feed — post 41517
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41517_1778398601.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Netflix Lists Akane-banashi Anime's English Dub Cast, Staff Members
+
+First 2 episodes' English dub streams on May 17
+</div>
+
+## animenewsnetwork_feed — post 41516
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41516_1778398602.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Otaku Anti-War Protest Organizer Reacts to Singer Masayoshi Oishi's Comments on Protest
+
+Hiroyuki Takahashi responds to Oishi's on-air comments about March 28 protest
+</div>
+
+## animenewsnetwork_feed — post 41515
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41515_1778398602.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Your Anime Rankings - Best of Spring 2026, Apr 29-May 5
+
+Nippon Sangoku defies the odds, taking the #4 cumulative spot by proving that dense politicking can be just as gripping as any action sequence. See how your favorite shows stack up this week!
+</div>
+
+## animenewsnetwork_feed — post 41514
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41514_1778398603.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Tubi Adds Magical Sisters LuluttoLilly Anime
+
+Series also available on YouTube
+</div>
+
+## animenewsnetwork_feed — post 41513
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41513_1778398603.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Live-Action Blue Lock Film Announces 2 More Cast Members
+
+Sōshō Tomimoto plays Ikki Niko, Keisuke Kida plays Hibiki Ohkawa
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 02:00
 ---
 
