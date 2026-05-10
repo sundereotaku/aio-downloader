@@ -7,6 +7,123 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 23:41
+---
+
+## dangokimochi — post 11834
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11834_1778443867.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11833
+
+<div align="center">
+  <a href="telegram/content/dangokimochi_11833_1778443868.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## dangokimochi — post 11832
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11832_1778443868.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11831
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11831_1778443869.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11830
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11830_1778443869.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Deep_iranian_web — post 18583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://bitpin.ir/signup/?refcode=1crxbv6pq5
+</div>
+
+## Deep_iranian_web — post 18582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://bitpin.ir/signup/?refcode=1crxbv6pq5
+</div>
+
+## Irancirclejerks — post 1289
+
+<div align="center">
+  <img src="telegram/content/Irancirclejerks_1289_1778443870.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Middle_East_Spectator — post 31938
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱/
+🇮🇷 WATCH: Hezbollah has released footage of an FPV drone hitting an Israeli settler in the town of Shlomi, northern Israel
+
+Today, various IDF outposts on the border were officially abandoned due to the FPV threat.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31937
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱/
+🇮🇷 NEW: Hezbollah issued footage of an FPV drone hitting an Israeli settler in the town of Shlomi, northern Israel
+
+Various IDF bases and outposts on the border were officially abandoned today as a result of the FPV threat.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31936
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_31936_1778443870.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump on Truth Social:
+
+‘Iran has been playing games with the United States, and the rest of the World, for 47 years (DELAY, DELAY, DELAY!), and then finally hit "pay dirt" when Barack Hussein Obama became President.
+
+He was not only good to them, he was great, actually going to their side, jettisoning Israel, and all other Allies, and giving Iran a major and very powerful new lease on life. Hundreds of Billions of Dollars, and 1.7 Billion Dollars in green cash, flown into Tehran, was handed to them on a silver platter.
+
+Every Bank in D.C., Virginia, and Maryland was emptied out - It was so much money that when it arrived, the Iranian Thugs had no idea what to do with it. They had never seen money like this, and never will again. It was taken off the plane in suitcases and satchels, and the Iranians couldn't believe their luck.
+
+They finally found the greatest SUCKER of them all, in the form of a weak and stupid American President. He was a disaster as our "Leader," but not as bad as Sleepy Joe Biden!
+
+For 47 years the Iranians have been "tapping" us along, keeping us waiting, killing our people with their roadside bombs, destroying protests, and recently wiping out 42,000 innocent, unarmed protestors, and laughing at our now GREAT AGAIN Country. They will be laughing no longer!’
+
+@Middle_East_Spectator
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 21:10
 ---
 
