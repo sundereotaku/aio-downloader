@@ -7,6 +7,86 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 02:04
+---
+
+## Middle_East_Spectator — post 31946
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 NEW: In a phone call with Axios reporter Barak Ravid, Trump said he doesn’t like Iran’s response and called it ‘very inappropriate’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31942
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_31942_1778452495.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷 NEW: Nightly rallies in support of the Islamic Republic and Supreme Leader Khamenei continue
+
+These have been ongoing non-stop since the start of U.S.-Israeli aggression on February 28th.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31941
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇺🇸/🇮🇷 NEW: Iran’s Army announces that air defenses downed an enemy surveillance drone in the south-west several hours ago – IRIB
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31940
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇺🇸/🇮🇷 According to Iran’s semi-official Tasnim News Agency:
+
+Iran’s response to the latest U.S. proposal emphasizes the following points:
+
+– No handover of Iran’s enriched uranium stockpile to the U.S. or any other country.
+
+– An immediate end to the war on all fronts, including Lebanon, and guarantees of no further aggression.
+
+– The immediate lifting of the U.S. naval blockade.
+
+– Gradual lifting of all U.S. sanctions against Iran.
+
+– Specifically, sanctions on Iran’s oil exports must be lifted within 30-days of signing an MoU.
+
+– Release of frozen Iranian funds within the 30-days period after signing MoU.
+
+– Recognizing Iranian control of the Strait of Hormuz
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31939
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_31939_1778452498.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇺🇸/🇮🇷 President Trump:
+
+‘I have just read the response from Iran’s so-called ‘Representatives’.
+
+I don’t like it — TOTALLY UNACCEPTABLE!’
+
+@Middle_East_SpectTor
+</div>
+
+## DailyJapaneseThread — post 6689
+
+
+
+
+---
 📅 بروزرسانی: 1405/02/20 23:41
 ---
 
