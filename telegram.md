@@ -7,6 +7,239 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 18:12
+---
+
+## sugoileaks — post 3928
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Happy Mother's Day 💐
+</div>
+
+## sugoileaks — post 3927
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3927_1778424155.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New series memorial Azusagawa Kaede Panda Ver. KV for upcoming final anime movie "AO BUTA: Rascal Does Not Dream Of A Dear Friend"
+
+The final movie will Release in Japanese cinemas on October 16, 2026 & it'll conclude the series!!
+
+Studio: CloverWorks
+Director: Soichi Masui
+Series Comp. & Screenplay: Masahiro Yokotani
+Character Design: Satomi Tamura
+Music: Fox Capture Plan
+
+The Final Movie for the whole "AoButa" Series & will Adept 2 & Only Final Vols of LN!!
+
+SUMMARY of The Final Movie:
+“I’m glad I met you.”
+Faced with the truth about Miori & Touko Kirishima, Sakuta must make a choice.
+This will be his final case of Adolescence Syndrome!
+</div>
+
+## sugoileaks — post 3926
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3926_1778424156.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New Entry Arc PV for ongoing Season 2 of the fantasy Anime "WISTORIA: Wand & Sword"
+
+The new arc begins with EP6 that will premiere next Sunday on May 18, 2026!
+
+Studios: ACTAS × BN PICTURES
+Chief Director: Tatsuya Yoshihara
+Director: Hideaki Nakano
+Character Design & Chief Animation Director: Sayaka Ono
+Music: Yuki Hayashi
+
+Based on the Fantasy Story by "Danmachi" writer Oomori Fujino & Aoi Toshi about a young man named Will who is unable to cast spells himself but in order to fullfill a childhood promise with Elfaria & he's determined to reach the peak of the magical world, even if he can only use his sword for it.
+</div>
+
+## sugoileaks — post 3925
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+NEW INFO TMRW: "THE GHOST IN THE SHEL"
+</div>
+
+## sugoileaks — post 3924
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+LEAK: "THE ECCENTRIC DOCTOR OF THE MOON FLOWER KINGDOM"
+
+
+Based on The Fantasy Romance & Medical Drama Manga by Thoru Himuka.
+
+SUMMARY:
+The Story Centers When the prince of the Moonflower Kingdom travels to Ran Province, he and his companion Shiei are attacked by highwaymen sent after him by the concubine Ro.
+In the next town, they are sent to see the doctor Koyo.
+With her assistant Shingdam, she manages to save Shiei.
+Her knowledge of medicine and her surgical skills impress Prince Keiun.
+In the land, it is customary to banish illnesses with rituals, which have only limited success.
+To compensate her properly, the two noblemen take the doctor and her assistant back to the capital.
+Keiun wants to use Koyo's skills to help others in his kingdom and spread her knowledge.
+But the young, beautiful, and eccentric woman soon encounters resistance, and the prince remains in danger.
+</div>
+
+## Middle_East_Spectator — post 31931
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+In strategic terms, Israel has achieved nothing in all these three years.
+
+Except the destruction of Gaza’s civilian population and infrastructure.
+</div>
+
+## Middle_East_Spectator — post 31930
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱 It’s now 2026, a reality check for Israel after 3 years of war:
+
+🇵🇸 Gaza front:
+
+– Hamas has not been disarmed after almost three years of war.
+
+– Tunnel infrastructure in Gaza is intact, rocket arrays being slowly rebuilt.
+
+– Al-Qassam has approximately 25,000 fighters, the same amount as before Oct 7th.
+
+– No sign of an interim government, Hamas is still politically in control of Gaza.
+
+🇱🇧 Lebanon front:
+
+– Hezbollah has not been disarmed, neither North nor South of the Litani.
+
+– Hezbollah’s leadership has successfully reorganized and decentralized, and is now more resistant to assassination strikes than before.
+
+– Hezbollah retains the capability to launch long-range and medium-range rockets, drones and missiles into Israel.
+
+– The increasing use of FPV drones has rendered northern Israeli settlements into ghost towns, and significantly degraded the IDF’s freedom of movement in southern Lebanon.
+
+🇮🇷 Iran front:
+
+– The Islamic Republic is still firmly in power, and perhaps even more entrenched than before.
+
+– Iran’s ballistic missile program, drone force, and conventional capabilities are almost entirely intact and capable of threatening Israel.
+
+– Iran still possesses a large stockpile of highly-enriched uranium, nuclear breakout time is still at ~6 months to a year.
+
+– The Strait of Hormuz is now under Iranian control.
+
+– Most U.S. bases in the region have been rendered unusable and Israel’s Gulf allies are in the weakest position they’ve ever found themselves.
+
+🇾🇪 Yemen front:
+
+– Ansarallah (Houthis) still control the majority of Yemen.
+
+– Houthis still possess hundreds of ballistic missiles and thousands of drones, capable of targeting Israel.
+
+– The Bab Al-Mandab can be closed at any moment.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31929
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_31929_1778424159.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱/
+🇮🇷 WATCH: Hezbollah has released footage showing two FPV drone strikes against the same Iron Dome battery at the Israeli Jal Al-Alam site on the Lebanese border The first drone directly strikes the Iron Dome battery, the second drone strikes a group…
+</div>
+
+## Middle_East_Spectator — post 31928
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱/
+🇮🇷 WATCH: Hezbollah has released footage showing two FPV drone strikes against the same Iron Dome battery at the Israeli Jal Al-Alam site on the Lebanese border
+
+The first drone directly strikes the Iron Dome battery, the second drone strikes a group of six Israeli soldiers next to the Iron Dome the day after.
+
+@Middle_East_Soectator
+</div>
+
+## Middle_East_Spectator — post 31927
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+According to sources, Iran rejected various aspects of the U.S. proposal.
+
+Proposal doesn’t include details on nuclear program.
+</div>
+
+## Middle_East_Spectator — post 31926
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷
+🇵🇰
+🇺🇸
+⚡️ — NEW: Iran sent its response today to the latest U.S. proposal aimed at ending the war through Pakistani mediators, according to IRNA.
+</div>
+
+## Middle_East_Spectator — post 31925
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_31925_1778424159.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇮🇷/🇶🇦 NEW: The IRGC Navy struck a bulk carrier (cargo ship) off the coast of Qatar, according to UKMTO
+
+@Middle_East_Spectator
+</div>
+
+## DailyJapaneseThread — post 6687
+
+<div align="center">
+  <a href="telegram/content/DailyJapaneseThread_6687_1778424160.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## animenewsnetwork_feed — post 41522
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41522_1778424162.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Needy Girl Overdose ‒ Episode 6
+
+If Needy Girl Overdose is ultimately a show about the ways society today destroys young women, this episode is a great examination of how even the women who benefit from the patriarchy are constrained and suppressed by it.
+</div>
+
+## animenewsnetwork_feed — post 41521
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41521_1778424162.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Welcome to Demon School, Iruma-kun Season 4 ‒ Episode 6
+
+Purson’s absence and his conflict are important this week, not because it takes up a lot of screentime, but because without him, there’s no guarantee that the Misfit Class will be able to perform at their best.
+</div>
+
+## animenewsnetwork_feed — post 41520
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41520_1778424163.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Snowball Earth ‒ Episode 6
+
+For once, the CG wasn’t the biggest problem I had here.
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 14:47
 ---
 
