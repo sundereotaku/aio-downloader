@@ -7,6 +7,174 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 21:10
+---
+
+## sugoileaks — post 3933
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3933_1778434854.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New Domina Blowelive KV for upcoming season 3 of the anime "MASHLE: Magic And Muscles"
+
+Season 3 will premiere during 2027!
+
+Studio: A-1 PICTURES
+Director: Tomoya Tanaka
+Series Comp. & Script: Yōsuke Kuroda
+Character Design: Chiaki Furuzumi (Before Hisashi Higashijima)
+Music: Masaru Yokoyama
+
+It will cover the Tri-Magic-Athalon Divine Visionary Final Exam Arc.
+</div>
+
+## Deep_iranian_web — post 18581
+
+<div align="center">
+  <a href="telegram/content/Deep_iranian_web_18581_1778434855.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## cyberfiend666 — post 32699
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32699_1778434857.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32698
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32698_1778434858.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32697
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32697_1778434859.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32696
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32696_1778434860.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32695
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32695_1778434862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32694
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32694_1778434862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Middle_East_Spectator — post 31935
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_31935_1778434863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Another Hezbollah video coming soon.
+</div>
+
+## Middle_East_Spectator — post 31934
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱/🇮🇷 Israeli Prime Minister, Benjamin Netanyahu:
+
+‘The war with Iran is not over because there is still enriched uranium that has to be taken out of Iran.
+
+There are still enrichment sites that need to be dismantled. There are still proxies that Iran supports and ballistic missiles that they want to produce.
+
+We degraded a lot of it, but there is work to be done.’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31933
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump: ‘I didn’t say the war in Iran is over. We got maybe 70%. We may have to go in there about two more weeks’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31932
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 Reporter: ‘Where are we in the war if we have not yet gotten the nuclear materials, the enriched uranium from them?’
+
+President Trump: ‘Well, we'll get that at some point, whatever we want’
+
+‘You know, I did a thing called Space Force—if somebody walked in, they can tell you his name, his address, the number of his badge. If anybody got near the place, we will know about it, and we'll blow them up’
+
+@Middle_East_Spectator
+</div>
+
+## LiveMuseumOfIgnorancy — post 11499
+
+
+
+
+## DailyJapaneseThread — post 6688
+
+<div align="center">
+  <img src="telegram/content/DailyJapaneseThread_6688_1778434864.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+2 years anki streak goes hard
+</div>
+
+## animenewsnetwork_feed — post 41524
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41524_1778434865.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Land Volume 2 Manga Review
+
+Land is neither fantasy nor science fiction, nor is it historical fiction. It's close to all of those, but it settles for none. What it is is an excellent read.
+</div>
+
+## animenewsnetwork_feed — post 41523
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41523_1778434865.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Atari Announces Acquisition of First 5 Wizardry Games; Drecom Denies Overall Trademark Acquisition Reports
+
+Drecom states it was recently informed Atari had acquired rights to first 5 games from original rights holder
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 18:12
 ---
 
