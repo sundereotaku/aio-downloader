@@ -7,6 +7,180 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/22 01:49
+---
+
+## Configshub2 — post 1681145
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+𝘾𝙤𝙣𝙛𝙞𝙜𝙨𝙃𝙪𝙗🖤 pinned «فعلا شده گیگی 250 و پایینتر اگه خواستین برین اکانت فروش @EkhMelli4»
+</div>
+
+## dangokimochi — post 11844
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11844_1778537997.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11843
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11843_1778537998.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11842
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11842_1778537998.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11841
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11841_1778537999.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11840
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11840_1778538000.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11839
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11839_1778538001.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KangZone — post 32245
+
+<div align="center">
+  <img src="telegram/content/KangZone_32245_1778538002.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KiranTimes — post 1059
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب می‌زنن.
+</div>
+
+## KiranTimes — post 1058
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب می‌زنن.
+</div>
+
+## Middle_East_Spectator — post 31972
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱/🇺🇸/🇮🇷 Hebrew Walla News: ‘Israel assesses that Mojtaba Khamenei is a major obstacle in the negotiations with the U.S. and will not compromise’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31971
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_31971_1778538003.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 Iran’s Parliament Speaker, Mohammad Baqer Qalibaf:
+
+‘There is no alternative but to accept the rights of the Iranian people as laid out in the 14-point proposal.
+
+Any other approach will be completely inconclusive, nothing but one failure after another.
+
+The longer they drag their feet, the more the American taxpayers will pay for it.’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31970
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_31970_1778538003.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/🇦🇪 BREAKING: The Wall Street Journal confirms, based on informed sources, that the UAE has been carrying out strikes on Iran
+
+One of the strikes back in April targeted the Lavan Oil Refinery Company (LORC) on Lavan Island.
+
+The UAE had long been suspected of carrying out the attack, but it was unconfirmed until now. At the time, Iran responded by targeting an Emirati refinery.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31969
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_31969_1778538004.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷 NEW: Iran is considering imposing fees on subsea internet cables in the Strait of Hormuz
+
+IRGC-affiliated Tasnim and Fars outlets reported today that any cable laid on the seabed without authorization constitutes ‘occupation of Iranian soil underwater’ and must be subject to licensing and fees.
+
+The monetization blueprint is modeled loosely on Egypt, which earns between 250 million USD and 400 million USD annually from cables transiting the Suez corridor.
+
+Under the proposed framework, foreign operators would pay per-meter infrastructure fees and licensing royalties to route cables through Iranian territorial waters.
+
+The subsea cables in question—including the FALCON, GBI and Gulf-TGN networks—enable the bulk of Internet traffic, financial transactions and cloud data flowing between Europe and Asia via the Middle East.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31966
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_31966_1778538005.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷| Iran’s Parliament Speaker, Ghalibaf:
+
+Our armed forces are ready to respond in a lesson-teaching manner to any aggression.
+
+We are prepared for all options; they will be surprised.
+
+@FotrosResistancee
+</div>
+
+## animenewsnetwork_feed — post 41552
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41552_1778538006.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Heritage Auctions Celebrates the Art of Dragon Ball, Pokemon, and More!
+
+Animation cels, production materials, and more are hitting the auction block. Check out "The Art of Anime, Vol. VIII" and see how you too can own a piece of anime history.
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 21:35
 ---
 
