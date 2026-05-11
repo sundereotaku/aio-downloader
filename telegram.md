@@ -7,6 +7,579 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 21:35
+---
+
+## anime_news — post 10212
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"The Insipid Prince's Furtive Grab for The Throne" TV anime first PV. Begins in July.
+</div>
+
+## Configshub2 — post 1681144
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا تمدید شه و روشنش کنم اگه کسی خواست اختصاصی متصل بخره بت قیمت معقول به پشتیبانی سرویس پیام بده @EkhMelli4
+</div>
+
+## Configshub2 — post 1681143
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب اکی میکنم اینجارو
+</div>
+
+## sugoileaks — post 3944
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3944_1778522757.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🕊️😢
+</div>
+
+## sugoileaks — post 3943
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3943_1778522758.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+First PV for upcoming fantasy anime "THE INSIPID PRINCE'S FURTIVE GRAB FOR THE THRONE"
+
+The anime will premiere in july 2026!!
+
+Studio: MAHO FILM
+Director: Yuuji Yanase
+Series Comp.: Kazuyuki Fudeyasu
+Character Design: Kazuko Tadano
+
+Main Cast:
+Arnold Lakes Aadler | CV: Yuma Uchida
+Leonard Lakes Aadler | CV: Kikunosuke Toya
+Finne Von Kleinert | CV: Manaka Iwami
+Elna Von Amsberg | CV: Maaya Uchida
+Lynphia | CV: Kaede Hondo
+
+New Cast:
+Eric Lakes Adler | CV: Atsushi Tamaru
+Gordon Lakes Adler | CV: Ryōta Takeuchi
+Zandora Lakes Adler | CV: Mitsuki Saiga
+Johannes Lakes Adler | CV: Kazuhiko Inoue
+
+
+Based on The Fantasy LN By Tanaba & Yuunagi.
+
+SUMMARY:
+The Story Centers In the Ardrasia Empire, after the death of the crown prince in battle, the struggle for the throne among the princes has become heated.
+Since losing the struggle for the throne could even cost one's life, the lower-ranking princes are constantly at risk of assassination.
+The seventh prince of the Ardrasia Empire, Arnold Lakes Adler, continued to be incompetent and he is mocked by the nobles as the "Leftover Prince" because his twin brother, the Eighth prince Leonard, had stolen all of his good qualities.
+However, Arnold is actually the strongest prince, and his secret identity is "Silver", a skilled SS-rank adventurer who hides his face behind a mask and completes difficult requests using powerful magic.
+Arnold has no intention of becoming emperor, so in order to protect his own life, he secretly works behind the scenes to support his younger brother Leo, whom he believes is more worthy of the throne.
+</div>
+
+## dangokimochi — post 11838
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11838_1778522759.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11837
+
+<div align="center">
+  <a href="telegram/content/dangokimochi_11837_1778522760.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## cyberfiend666 — post 32711
+
+
+
+
+## cyberfiend666 — post 32710
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32710_1778522761.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32707
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32707_1778522763.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32705
+
+<div align="center">
+  <a href="telegram/content/cyberfiend666_32705_1778522764.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## cyberfiend666 — post 32703
+
+<div align="center">
+  <a href="telegram/content/cyberfiend666_32703_1778522767.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## cyberfiend666 — post 32702
+
+<div align="center">
+  <a href="telegram/content/cyberfiend666_32702_1778522769.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## cyberfiend666 — post 32701
+
+<div align="center">
+  <a href="telegram/content/cyberfiend666_32701_1778522770.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## cyberfiend666 — post 32700
+
+<div align="center">
+  <a href="telegram/content/cyberfiend666_32700_1778522774.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## Middle_East_Spectator — post 31965
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_31965_1778522776.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Middle_East_Spectator — post 31964
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_31964_1778522777.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇱/🇮🇷 NEW: President Trump is considering restarting military action against Iran following a deadlock in negotiations, and will meet with generals later today
+
+Options that will be presented include a resumption of ‘Project Freedom’ that would see U.S. military escorts for vessels through the Strait of Hormuz.
+
+Another option is resuming strikes against 25% of identified targets in Iran that have not yet been hit.
+
+Additionally, Israel is pressuring Trump to authorize a high-stakes special operation to retrieve Iran’s enriched uranium, but the President is hesitant due to high risks. – Axios
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31963
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷/
+🇮🇶 President Trump:
+
+‘We gave so many weapons to the Kurds, they were supposed to give them [to Iranian protesters].
+
+But they kept them and did nothing. It’s very disappointing, I’m disappointed in the Kurds, who were supposed to help’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31962
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 NEW: Iran’s semi-official media Tasnim News Agency reports that they have genuinely no clue what Trump is talking about anymore, and there was never a proposal to hand over uranium to the United States
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31961
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump:
+
+‘Iran attacked Qatar, Bahrain, Saudi Arabia — they attacked everywhere.
+
+Nobody expected them to attack, they weren’t supposed to do that. But it was a waste, we knocked down all of those missiles with our beautiful patriots’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31960
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump: ‘Iran’s leaders are crazy, they’re crazy — I deal with them all the time, they’re lunatics’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31959
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump: ‘Iran’s leaders are dishonorable people. They took 4 days to send us a piece of paper that should have taken 10 minutes to prepare, and it was garbage’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31958
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_31958_1778522777.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump:
+
+‘Is Iran stupid? Are they stupid people? They think that I’ll get tired of this or I’ll get bored or get pressured.
+
+There is no pressure, no pressure at all. We will have a complete victory, we’ve already in theory had a complete victory from a military standpoint’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31957
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇺🇸/🇮🇷 President Trump:
+
+‘The ceasefire is unbelievably weak. I would call it the weakest right now.
+
+What they sent us [Iran’s latest response] was a piece of garbage, I didn’t even finish reading it.
+
+It was a waste of time. So the ceasefire is on life support. It’s on massive life support. Like when the doctor walks in and says ‘sir, your loved one has approximately 1% chance of living’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31956
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_31956_1778522779.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump:
+
+‘You have the moderates and you have the lunatics. The lunatics want to fight till the end.
+
+I call them lunatics, they’re stupid people. But the moderates are dying to make a deal.’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31955
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump:
+
+‘Iran told me very strongly that they intend to give us the nuclear dust.
+
+They told me ‘you’re getting it but you’re gonna have to take it out’.
+
+Because the site was so obliterated there’s only one or two countries in the world that could get it, the U.S. or China.’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31954
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_31954_1778522781.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump:
+
+‘People say ‘well, does he have a plan?’
+
+Of course I do. I have the best plan ever.’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31953
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_31953_1778522783.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump:
+
+‘I’m being waited on by a large group of generals — having to do with the absolutely lovely country of Iran ‘
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31952
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/🇺🇸 Iran’s Foreign Ministry Spokesman, Ismael Baqaei:
+
+‘Iran has proven to be a responsible power in the region, and at the same time, we are not bullies. Rather, we are anti-bullying. Just look at our conduct, and then look at the conduct of others.
+
+Were we the ones who launched a military campaign against a country thousands of miles away? Were we the ones who killed 170 innocent people in a single day? Are we the ones intimidating and bullying Cuba, Venezuela, and other countries in the Western Hemisphere? Are we the ones who, during a diplomatic process, committed such a great crime — twice?
+
+Is attacking a country, destroying its infrastructure, and assassinating the leader and citizens of a country an example of responsible behavior?’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31951
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 Iran’s Foreign Ministry, in response to Trump’s comments:
+
+‘We have not made any unreasonable requirements or demands. The only thing we have asked for is the legitimate rights of Iran.
+
+I leave the decision to you and our people as to whether they consider Iran's demand for a ceasefire in the region, or for a ceasefire in the Persian Gulf, or for the release of Iranian assets that have been illegally frozen by the United States in foreign banks for years, an unreasonable demand?
+
+Is Iran's proposal for guaranteeing safe passage through the Strait of Hormuz an unreasonable demand? Is raising an important issue such as establishing peace and security throughout the region, including Lebanon, considered an irresponsible demand?
+
+Unfortunately, the American parties still insist on their one-sided views and unreasonable demands, influenced mainly by the mindset largely fabricated by the Zionist regime.’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31950
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_31950_1778522784.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/🇶🇦 NEW: A Singapore-flagged LNG tanker originating in Qatar tried to cross the Strait of Hormuz, but was instructed to turn back by Iran
+
+It’s unclear if the vessel obtained permission beforehand.
+
+@Middle_East_Spectator
+</div>
+
+## LiveMuseumOfIgnorancy — post 11502
+
+<div align="center">
+  <img src="telegram/content/LiveMuseumOfIgnorancy_11502_1778522785.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## DailyJapaneseThread — post 6692
+
+<div align="center">
+  <a href="telegram/content/DailyJapaneseThread_6692_1778522785.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## DailyJapaneseThread — post 6691
+
+<div align="center">
+  <a href="telegram/content/DailyJapaneseThread_6691_1778522786.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## DailyJapaneseThread — post 6690
+
+<div align="center">
+  <a href="telegram/content/DailyJapaneseThread_6690_1778522787.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## animenewsnetwork_feed — post 41551
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41551_1778522789.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+My Friend's Little Sister Has it in For Me Manga Ends in Next Volume This Fall
+
+11th volume shipped on May 7
+</div>
+
+## animenewsnetwork_feed — post 41550
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41550_1778522789.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Rooster Fighter ‒ Episode 9
+
+Imagine my burning jealousy at the reunion between Elizabeth and her human.
+</div>
+
+## animenewsnetwork_feed — post 41549
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41549_1778522789.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Chronicles of the Going Home Club's Kuroha Launches New Manga
+
+Kuroha launched SATANICA manga about high school occult research club on May 9
+</div>
+
+## animenewsnetwork_feed — post 41548
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41548_1778522790.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Kaiju Girl Caramelise Volumes 5-8 Manga Review
+
+Who you are on the outside doesn’t matter nearly as much as who you are in your soul.
+</div>
+
+## animenewsnetwork_feed — post 41547
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41547_1778522790.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Witch Hat Atelier Anime Casts Knights Moralis
+
+Junichi Suwabe, Jun Kasama, Hiroki Yasumoto, Yui Ishikawa join cast
+</div>
+
+## animenewsnetwork_feed — post 41546
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41546_1778522791.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Daemons of the Shadow Realm ‒ Episode 6
+
+In this episode, we learn what Asa's greatest fear is—and what it isn’t.
+</div>
+
+## animenewsnetwork_feed — post 41545
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41545_1778522791.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Moka Onmae's 'Good Morning, Good Night, and See You Tomorrow.' Manga Ends in Next Chapter
+
+Manga based on author's real-life cancer battle launched in 2023
+</div>
+
+## animenewsnetwork_feed — post 41544
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41544_1778522792.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Wistoria: Wand and Sword Season 2 ‒ Episode 5
+
+If the show is going to start branching out beyond the walls of the school, we'll need plenty of world-building and plot setup to make sure that all of it matters.
+</div>
+
+## animenewsnetwork_feed — post 41543
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41543_1778522792.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The Killer Angel Within: Ameku Takao's Detective Karte Manga to End in 3rd Volume
+
+Manga based on Mikito Chinen's novels debuted in 2024
+</div>
+
+## animenewsnetwork_feed — post 41542
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41542_1778522793.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Ascendance of a Bookworm Part 3: Adopted Daughter of an Archduke ‒ Episode 5
+
+Among everything else, Rosemyne has also inadvertently invented the concept of Christian Rock.
+</div>
+
+## animenewsnetwork_feed — post 41541
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41541_1778522793.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Maki Fujita's Ka no Yo no Kemono ga Miru Yume wa Manga Ends
+
+Manga's 3rd, final volume ships on July 15
+</div>
+
+## animenewsnetwork_feed — post 41540
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41540_1778522794.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Retrospective: Does the Dying Will of Reborn! Still Burn?
+
+Jairus Taylor looks back on the unfinished shonen classic to see why it captured a dedicated audience (and whether it's really any good).
+</div>
+
+## animenewsnetwork_feed — post 41539
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41539_1778522794.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Agents of the Four Seasons: Dance of Spring ‒ Episode 7
+
+I've been begging Agents of the Four Seasons to get a move on with its story for weeks. I guess dropping a ballistic missile right on top of the characters' heads is one way to go about doing that.
+</div>
+
+## animenewsnetwork_feed — post 41538
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41538_1778522795.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Hundred Scenes of AWAJIMA ‒ Episode 5
+
+These are scenes from Awajima. They're not full stories. They have neither a set beginning nor a satisfying conclusion. One student fades into another.
+</div>
+
+## animenewsnetwork_feed — post 41537
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41537_1778522795.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The Insipid Prince's Furtive Grab for The Throne Anime Reveals 1st Promo Video, 4 New Cast Members
+
+Atsushi Tamaru, Ryōta Takeuchi, Mitsuki Saiga, Kazuhiko Inoue join cast of July series
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 14:20
 ---
 
