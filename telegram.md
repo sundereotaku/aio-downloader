@@ -7,6 +7,406 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 14:20
+---
+
+## anime_news — post 10211
+
+<div align="center">
+  <img src="telegram/content/anime_news_10211_1778496648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"THE GHOST IN THE SHELL" TV anime new key visual and PV. Begins in July.
+</div>
+
+## anime_news — post 10210
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"The Credits Roll Into the Sea" feature-length anime film adaptation announced for 2027 directed by Taichi Ishidate at Kyoto Animation.
+</div>
+
+## sugoileaks — post 3942
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3942_1778496649.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The josei SOL Manga "CREDITS ROLL INTO THE SEA" Gets animated feature-length film adaptation officially announced with first KV & PV!! The movie will be out during next Year!! Studio: KyoAni (Kyoto Animation) Director: Taichi Ishidate Based On The Slice…
+</div>
+
+## sugoileaks — post 3941
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3941_1778496650.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The josei SOL Manga "CREDITS ROLL INTO THE SEA" Gets animated feature-length film adaptation officially announced with first KV & PV!!
+
+The movie will be out during next Year!!
+
+Studio: KyoAni (Kyoto Animation)
+Director: Taichi Ishidate
+
+
+Based On The Slice of Life Drama & Josei Manga By John Tarachine.
+
+SUMMARY:
+“It’s not the movies you like…you like watching the people watching the movies.”
+Just what are you going to do with the rest of your life?
+It’s the question you’ll always have to answer, no matter your age.
+Umiko Chino is a 65 year-old retired woman in mourning for her late husband.
+Remembering how they used to watch films together, Umiko goes to the movie theater for the first time in years, where she meets Kai, an attractive, ambiguous young man who studies filmmaking at a nearby art school.
+They would seem to have nothing in common, except for this—both of them sometimes like to look more at the way the audience reacts to a movie than the movie itself.
+Kai believes Umiko has the same deep desire he possesses to experience how people respond to something they made… and challenges her to stake the rest of her life discovering that thrill.
+Soon Umiko surprises herself by enrolling in the same film school as Kai.
+But sailing into this new sea, she’s suddenly inside the currents of her fellow students’ lives, a much younger generation that she struggles to understand, driven by their own passions and their own relationships.
+Who’s really experienced at life, and is it old age or observation that brings wisdom?
+And does what you’re looking for change when you look with your eyes instead of through a camera lens…?
+</div>
+
+## sugoileaks — post 3939
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New KV & PV for upcoming sci-fi action remake anime "THE GHOST IN THE SHELL" The remake will premiere on July 7, 2026 Studio: Science SARU Character Designs (VA not announced): Motoko Kusanagi Daisuke Aramaki Batou Togusa Ishikawa Saito Borma Paz Operator…
+</div>
+
+## sugoileaks — post 3938
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3938_1778496653.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New KV & PV for upcoming sci-fi action remake anime "THE GHOST IN THE SHELL"
+
+The remake will premiere on July 7, 2026
+
+Studio: Science SARU
+
+Character Designs (VA not announced):
+Motoko Kusanagi
+Daisuke Aramaki
+Batou
+Togusa
+Ishikawa
+Saito
+Borma
+Paz
+Operator
+Fuchikoma
+
+
+Based on the sci-fi action manga “The Ghost in the Shell” by Shirow Masamune.
+
+SUMMARY:
+The Story Centers on year 2029.
+In near-future Japan, where the world has become highly information-intensive, with a vast corporate network covering the planet, electrons and light pulsing through it.
+But the nation-state and ethnic groups still survive.
+Motoko Kusanagi, a full-body cyborg, leads an elite combat unit, including Batou.
+While commanding her team, Kusanagi envisions the creation of a specialized task force to preemptively strike against emerging threats.
+Meanwhile, Daisuke Aramaki of the Ministry of Internal Affairs, who had been planning to establish a similar unit, recruited Kusanagi and her team.
+Together, they begin operations as Public Security Section 9—an offensive tactical unit known as “Shell Squad.”
+As they confront complex cybercrimes and international conspiracies, the existence of a mysterious, unidentified hacker known as The “Puppet Master” emerges on the horizon of their investigation.
+What fate awaits Kusanagi?
+And what is the Puppet Master’s true objective?
+A new era of cyberpunk action begins.
+
+
+STAFF:
+Director: Moko-chan
+Series Comp. & Script: Toh EnJoe
+Character Design & Chief Animation Director: Shuhei Handa
+Art Director: Emi Katanosaka
+Art Supervision: Osamu Masuyama
+Color Design: Satoshi Hashimoto
+Director of Photography: Hikari Itō
+Editor: Kiyoshi Hirose
+Sound Director: Yuji Tange
+Sound Effects: Shota Yaso
+Recording: Yasuaki Ōta
+Music Director: Taisei Iwasaki
+Music: Taisei Iwasaki & Ryo Konishi & Yuki Kanesaka
+Music Production: FLYINGDOG
+</div>
+
+## sugoileaks — post 3937
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3937_1778496657.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+NEW INFO TMRW: "THE GHOST IN THE SHEL"
+</div>
+
+## sugoileaks — post 3936
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3936_1778496660.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## sugoileaks — post 3935
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3935_1778496661.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## sugoileaks — post 3934
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3934_1778496662.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Happy Monday
+</div>
+
+## dangokimochi — post 11836
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11836_1778496663.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11835
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11835_1778496664.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KangZone — post 32244
+
+<div align="center">
+  <a href="telegram/content/KangZone_32244_1778496665.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## KangZone — post 32243
+
+<div align="center">
+  <a href="telegram/content/KangZone_32243_1778496668.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## KangZone — post 32242
+
+<div align="center">
+  <img src="telegram/content/KangZone_32242_1778496670.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KangZone — post 32241
+
+<div align="center">
+  <a href="telegram/content/KangZone_32241_1778496671.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## KangZone — post 32240
+
+<div align="center">
+  <a href="telegram/content/KangZone_32240_1778496673.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## Middle_East_Spectator — post 31949
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_31949_1778496675.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱/
+🇮🇷 NEW: An Israeli tank was hit by Hezbollah and seen burning in Shama’a, southern Lebanon
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Would not be surprised if the U.S. & Israel attack before Trump’s visit to China.
+
+I don’t put anything past them anymore.
+</div>
+
+## Middle_East_Spectator — post 31947
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇨🇳/🇮🇷 NEW: President Trump will land in Beijing on Wednesday, May 13th, and leave on Friday
+
+He will meet with Chairman Xi Jinping, President of the People’s Republic of China.
+
+U.S. officials believe they have a strong and unique opportunity to push Iran with the help of China, to sign a multi-faceted peace deal that is acceptable to President Trump.
+
+‘Senior U.S. officials insist the crisis in the Strait of Hormuz and Tehran’s refusal to make nuclear concessions will prove to be an afterthought once the summit starts’, per the WSJ.
+
+@Middle_East_Spectator
+</div>
+
+## LiveMuseumOfIgnorancy — post 11501
+
+<div align="center">
+  <img src="telegram/content/LiveMuseumOfIgnorancy_11501_1778496676.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## animenewsnetwork_feed — post 41536
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41536_1778496677.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+K Manga Adds LDK Pink Sequel Manga
+
+Sequel launched in February 2022
+</div>
+
+## animenewsnetwork_feed — post 41535
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41535_1778496677.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+'Go for It, Nakamura!' Anime Reveals New Cast Member
+
+Shōya Chiba joins anime's cast as drama & film club director, screenwriter Arandō Tamura
+</div>
+
+## animenewsnetwork_feed — post 41534
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41534_1778496678.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Let Me Fix You Short Anime Rescheduled to Mid-June Without Buta Productions, FAR
+
+Anime was originally slated to be released in May
+</div>
+
+## animenewsnetwork_feed — post 41533
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41533_1778496679.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Gachiakuta, Re-Living My Life with a Boyfriend Who Doesn't Remember Me, The Darwin Incident Win 50th Kodansha Manga Awards
+
+Gachiakuta wins Best Shōnen Manga, Re-Living My Life with a Boyfriend Who Doesn't Remember Me wins Best Shōjo Manga, The Darwin Incident wins Best General Manga
+</div>
+
+## animenewsnetwork_feed — post 41532
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41532_1778496680.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Akira's Katsuhiro Ōtomo Establishes New Feature Animation Studio Oval Gear
+
+1st work is in production; studio is hiring animators, production staff
+</div>
+
+## animenewsnetwork_feed — post 41531
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41531_1778496681.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Masami Yūki Draws New Patlabor 1-Shot Manga
+
+Yūki drew Patlabor manga from 1988 to 1994
+</div>
+
+## animenewsnetwork_feed — post 41530
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41530_1778496681.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Credits Roll Into the Sea Manga Gets Anime Film by Kyoto Animation in 2027
+
+Violet Evergarden's Taichi Ishidate helms John Tarachine's story about filmmaking
+</div>
+
+## animenewsnetwork_feed — post 41529
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41529_1778496683.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Happy Mother's Day 2026 From Around the Anime World, Part IV
+
+Featuring Naruto, Sanrio, Monster Hunter, Yowayowa Sensei, The Beginning After The End, Sega, Sylvanian Families, & more!
+</div>
+
+## animenewsnetwork_feed — post 41528
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41528_1778496683.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Happy Mother's Day 2026 From Around the Anime World, Part III
+
+Featuring Ghibli, Dragon Quest, Resident Evil, Minky Momo, I Made Friends with the Second Prettiest Girl in My Class, Princess Connect! Re:Dive, & more!
+</div>
+
+## animenewsnetwork_feed — post 41527
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41527_1778496684.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Happy Mother's Day 2026 From Around the Anime World, Part II
+
+Featuring My Hero Academia, Bleach, Tama & Friends, From Overshadowed to Overpowered, Liar Game, Mappa, Square Enix, & more!
+</div>
+
+## animenewsnetwork_feed — post 41526
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41526_1778496685.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The Ghost in the Shell Anime Reveals July 7 Debut in 3rd Promo Video
+
+More staff, character designs also revealed
+</div>
+
+## animenewsnetwork_feed — post 41525
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41525_1778496685.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Happy Mother's Day 2026 From Around the Anime World, Part I
+
+Featuring Fullmetal Alchemist, My Hero Academia, Final Fantasy, Frieren, Doraemon, Sonic the Hedgehog, Yuki Kaji, & more!
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 02:04
 ---
 
