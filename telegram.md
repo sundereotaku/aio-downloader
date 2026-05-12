@@ -7,6 +7,499 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 01:18
+---
+
+## Configshub2 — post 1690679
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://ce069292-c8bf-40dd-a6b1-87818a1e64e9@103.13.19.227:443?&security=tls&sni=1-aym.pages.dev&type=ws&headerType=none&host=1-aym.pages.dev&path=%2Ffp%3Dchrome#[🇯🇵]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ᴊᴀᴘᴀɴ(ᴊᴘ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpBUmd2R1p5d0ErZ2FjZ0dWMjZCdm11MDUrd1ptUlcvaitBZFUrWjhCdDQ0PQ==@156.38.168.58:990#[🏁]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #sᴏᴜᴛʜᴀғʀɪᴄᴀ(ᴢᴀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690677
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1690677" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690676
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1690676" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690675
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpBUmd2R1p5d0ErZ2FjZ0dWMjZCdm11MDUrd1ptUlcvaitBZFUrWjhCdDQ0PQ@119.59.127.129:990#[🇹🇭]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ᴛʜᴀɪʟᴀɴᴅ(ᴛʜ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690674
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://6202b230-417c-4d8e-b624-0f71afa9c75d@104.20.6.134:2096?path=/&security=tls&encryption=none&insecure=1&host=sni.111000.indevs.in&type=ws&allowInsecure=1&sni=sni.111000.indevs.in#[🇨🇦]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ᴄᴀɴᴀᴅᴀ(ᴄᴀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690673
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1690673" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690672
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1690672" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690671
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1690671" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690670
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1690670" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690669
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1690669" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690668
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1690668" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690667
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://f9f57c0b-b473-4fe9-8603-21e42613be04@snappfood.ir:8880?security=none&type=ws&headerType=&path=%2Fcdn&host=dl4.movizdl.ir#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690666
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+trojan://8r%3C%5B9%27l6hAO%238ZQi@172.64.149.54:2096?path=%2Ftr&security=tls&host=Koma-YT.PAGeS.Dev&type=ws&sni=Koma-YT.PAGeS.Dev#[🇨🇦]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ᴄᴀɴᴀᴅᴀ(ᴄᴀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690665
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://3563b254-8c4d-4c3d-9f62-5c7de6f3a308@snapp.ir:80?security=none&allowInsecure=0&encryption=none&type=ws&host=cdn1.xoorvip.ir&path=/#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690664
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://3563b254-8c4d-4c3d-9f62-5c7de6f3a308@snapp.ir:80?security=none&allowInsecure=0&encryption=none&type=ws&host=cdn1.xoorvip.ir&path=/#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690663
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+trojan://8r%3C%5B9%27l6hAO%238ZQi@172.64.149.54:2096?path=%2Ftr&security=tls&host=Koma-YT.PAGeS.Dev&type=ws&sni=Koma-YT.PAGeS.Dev#[🇨🇦]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ᴄᴀɴᴀᴅᴀ(ᴄᴀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690662
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://3563b254-8c4d-4c3d-9f62-5c7de6f3a308@snapp.ir:80?security=none&allowInsecure=0&encryption=none&type=ws&host=cdn1.xoorvip.ir&path=/#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690661
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://2daf1396-0383-4276-a054-baded537c6b3@185.143.233.200:8880?security=none&allowInsecure=0&encryption=mlkem768x25519plus.native.0rtt.-dHBgFiE3o72yiSy-lApCXI5RZiQ__iyVOGUfrCZiwM&type=ws&host=nima.hayalco.ir&path=/#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1690660
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://3563b254-8c4d-4c3d-9f62-5c7de6f3a308@snapp.ir:80?security=none&allowInsecure=0&encryption=none&type=ws&host=cdn1.xoorvip.ir&path=/#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## KiranTimes — post 1079
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸🇮🇷⚡️- BREAKING: Iran has access to the majority of its missile and launch sites, with 90% reportedly operational. - NYT citing intelligence agencies.
+</div>
+
+## KiranTimes — post 1078
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸🇮🇷⚡️- BREAKING: Iran has access to the majority of its missile and launch sites, with 90% reportedly operational. - NYT citing intelligence agencies.
+</div>
+
+## KiranTimes — post 1077
+
+<div align="center">
+  <a href="telegram/content/KiranTimes_1077_1778622489.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیرانیو انقدر فشاری کردیم خودشو لو داد
+</div>
+
+## KiranTimes — post 1076
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محض اطلاع ام بنده ارشیام. و‌ مانی نیستم.
+</div>
+
+## KiranTimes — post 1075
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محض اطلاع ام بنده ارشیام.
+و‌ مانی نیستم.
+</div>
+
+## KiranTimes — post 1074
+
+<div align="center">
+  <a href="telegram/content/KiranTimes_1074_1778622491.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نئوبسیجی‌های ددی ایشوزی
+</div>
+
+## KiranTimes — post 1072
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عشق دنیا رو کرده بخدا.
+کاش منم جای سر و کله زدن با نئوبسیجی‌های ددی ایشوزی، در حال پست کردن میم‌های کسشر با وای‌فای کمپ دیوید بودم.
+</div>
+
+## shitpostkid — post 17999
+
+<div align="center">
+  <img src="telegram/content/shitpostkid_17999_1778622493.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32713
+
+<div align="center">
+  <a href="telegram/content/cyberfiend666_32713_1778622493.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## cyberfiend666 — post 32712
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32712_1778622496.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Middle_East_Spectator — post 32019
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32019_1778622498.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷| An earthquake of 3.4 Richter magnitude at a depth of 8km shook Pardis, Tehran
+
+@FotrosResistancee
+</div>
+
+## Middle_East_Spectator — post 32018
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32018_1778622498.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump on Truth Social:
+
+‘When the Fake News says that the Iranian enemy is doing well, Militarily, against us, it’s virtual TREASON in that it is such a false, and even preposterous, statement. They are aiding and abetting the enemy! All it does is give Iran false hope when none should exist. These are American cowards that are rooting against our Country.
+
+Iran had 159 ships in their Navy — Every single ship is now resting at the bottom of the sea. They have no Navy, their Air Force is gone, all Technology is gone, their “leaders” are no longer with us, and the Country is an Economic Disaster. Only Losers, Ingrates, and Fools are able to make a case against America! President DONALD J. TRUMP’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32017
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇨🇳/🇮🇷 NEW: The U.S. State Department says that China also agrees that no tolls should be imposed on shipping through the Strait of Hormuz
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32016
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Heavy earthquake felt in Tehran.
+</div>
+
+## Middle_East_Spectator — post 32015
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32015_1778622499.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇰🇼🇮🇷| Iran’s MFA categorically rejects claims made by Kuwait that Iran was planning hostile actions against Kuwait.
+
+The statement says Kuwait’s government is using the case of 4 Iranian citizens for political and propaganda purposes.
+
+According to Iran, these people were Iranian officials who were on a routine maritime patrol/coastal guard mission, but because of a navigation-system disruption, they entered Kuwaiti territorial waters.
+
+@FotrosResistancee
+</div>
+
+## Middle_East_Spectator — post 32014
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷🇸🇦⚡️- BREAKING: Saudi Arabia carried out a series of unpublicized retaliatory strikes on Iran
+</div>
+
+## Middle_East_Spectator — post 32013
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_32013_1778622499.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump:
+
+‘I don’t think about America’s financial situation. I only think about one thing; we can not let Iran have a nuclear weapon’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32012
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump: ‘Iran has agreed not to possess nuclear weapons’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32011
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32011_1778622501.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/☢️ NEW: Chairman of Iranian Parliament’s National Security Committee, Ebrahim Azizi, says that members of the committee and the head of Iran’s Atomic Energy Agency are in ‘full agreement’ that Iran’s right to enrich must be preserved
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32010
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32010_1778622502.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇺🇸/🇮🇷 NEW: According to Al-Jazeera, Iran’s Supreme Leader Ayatollah Mojtaba Khamenei has given the negotiators 5 conditions that must be met before entering talks related to the nuclear file 1. Ending the war on all fronts in the region, including Lebanon…
+</div>
+
+## Middle_East_Spectator — post 32009
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32009_1778622502.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇺🇸/🇮🇷 NEW: According to Al-Jazeera, Iran’s Supreme Leader Ayatollah Mojtaba Khamenei has given the negotiators 5 conditions that must be met before entering talks related to the nuclear file
+
+1. Ending the war on all fronts in the region, including Lebanon and Gaza.
+
+2. The lifting of all economic sanctions imposed on Iran.
+
+3. Releasing all of Iran’s frozen funds held in foreign banks.
+
+4. Committing to paying reparations for the damages and losses resulting from the war.
+
+5. Recognizing Iran's sovereign right over the Strait of Hormuz.
+
+@Middle_East_Spectator
+</div>
+
+## animenewsnetwork_feed — post 41572
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41572_1778622503.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Creating a Fanclub: Director Sou Toyama on Kirio Fan Club
+
+What makes Kirio Fan Club a more realistic look at high school crushes? Director of the upcoming anime, Sou Toyama, gets into it.
+</div>
+
+## animenewsnetwork_feed — post 41571
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41571_1778622503.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+AnimEigo Schedules Alien Nine Anime Blu-ray Disc for June 9
+
+AnimEigo announced on Monday that its physical Blu-ray Disc release of the original video anime adaptation of Hitoshi Tomizawa Alien Nine manga will...
+</div>
+
+## animenewsnetwork_feed — post 41570
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41570_1778622504.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+MAO ‒ Episodes 5-6
+
+No dispensary in the world could make these stakes even higher.
+</div>
+
+## animenewsnetwork_feed — post 41569
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41569_1778622505.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+King of Prism, Last Sharknado Hold Double-Feature With Audience Call Backs Encouraged
+
+What does an idol anime movie & Sharknado 6 have in common? Time travel.
+</div>
+
+---
 📅 بروزرسانی: 1405/02/22 20:08
 ---
 
