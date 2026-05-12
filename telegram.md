@@ -7,6 +7,517 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/22 11:45
+---
+
+## Deamnet — post 26570
+
+<div align="center">
+  <img src="telegram/content/Deamnet_26570_1778573727.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گفته دوستان توی روبیکا یه نوع کلاهبرداری جدید راه افتاده
+
+که فایل فیلترشکن براتون میفرستن یا تو کانال میذارن
+و میگن وصل میشه
+ولی در عوض میخوان اجاز بدید به روبیکای شما وصل بشن !
+خلاصه مواظب باشید
+</div>
+
+## Configshub2 — post 1682856
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682856" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682855
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682855" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682854
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682854" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682853
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682853" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682852
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682852" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682851
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682851" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682850
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682850" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682849
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682849" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682848
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682848" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682847
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682847" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682846
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682846" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682845
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682845" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682844
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://3a68de36-243d-4504-864b-1e857f064441@sub.pardisvps.ir:2086?path=%2F&security=none&encryption=none&host=connect.pardisvps.ir&type=ws#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682843
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682843" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682842
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682842" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682841
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682841" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682840
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682840" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682839
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682839" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682838
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1682838" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1682837
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://3a68de36-243d-4504-864b-1e857f064441@sub.pardisvps.ir:2086?path=%2F&security=none&encryption=none&host=connect.pardisvps.ir&type=ws#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## sugoileaks — post 3949
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3949_1778573733.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The fantasy romance light anime "WITH VENGEANCE, SINCERELY, YOUR BROKEN SAINTESS" gets a Season 2 officially announced with a First KV&PV!! Season 2 will premiere in October 2026!! Studios: IMAGICA Infos × IMAGEWORKS. Based on the Fantasy Romance Manga…
+</div>
+
+## sugoileaks — post 3948
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3948_1778573736.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The fantasy romance light anime "WITH VENGEANCE, SINCERELY, YOUR BROKEN SAINTESS" gets a Season 2 officially announced with a First KV&PV!!
+
+Season 2 will premiere in October 2026!!
+
+Studios: IMAGICA Infos × IMAGEWORKS.
+
+
+Based on the Fantasy Romance Manga Webtoon by Aminohada & Sorajima.
+
+SUMMARY:
+The Story Centers on Lua who's a saintess candidate who possesses the power of healing.
+But her ability had one flaw: she could only heal others by transferring their wounds onto herself.
+Because of this, others bullied her, calling her the "Fallen Saintess."
+But it didn't bother Lua because her best friend Arianne always stood up for her.
+One day, Lua's crush, Commander Garrett, was on the brink of death from a beast attack.
+Lua healed him, which left her on the verge of death.
+When she woke up, she learned that all the credit was given to Arianne, and she finally saw her best friend's true color.
+Devastated, Lua is lost and helpless when the second prince appears in front of her with a tempting offer.
+</div>
+
+## sugoileaks — post 3947
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3947_1778573736.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New PV for ongoing youth romcom anime "I MADE FRIENDS WITH THE SECOND PRETTIEST GIRL IN MY CLASS"
+
+EP6 will premiere later today on May 12, 2026!!
+
+Studio: CONNECT
+
+The PV features "WORDS IN THE SUNLIGHT" song by reGretGirl 2025.
+
+New Cast:
+Nozomu Seki | CV: Rikuya Yasuda
+Itsuki Maehara | CV: Shinji Kawada
+Kyoka Minato | CV: Yurina Amami
+
+Based On the Youth Romcom By Osabe Tom & Takata.
+
+SUMMARY:
+The Story Centers on Maki Maehara who's always on his own at school.
+He has no friends or hobbies others share, and he doesn't expect the upcoming academic year to be any different, even surrounded by new faces.
+And six months later, it seems like he was right—until he runs into his popular classmate Umi Asanagi at a video store!
+Always at the center of attention and called the “second prettiest in class” by the boys, Asanagi's from a totally different world.
+But it turns out the two have more overlapping interests than just the B-grade movies they came to check out...and Asanagi asks Maehara to be her friend!
+
+STAFF:
+Director: Hideki Tachibana
+Ass. Director: Takumi Shibata
+Series Comp. & Script: Keiichirō Ōchi
+Character Design: Shoko Takimoto
+Costume Design: Kana Hayashi
+Chief Animation Directors: Shoko Takimoto & Kana Hayashi
+Art Director: Michiko Morokuma
+Background Studio: TENJIN
+Color Design: Erika Tsukino
+3D Director: Takeshi Saitō
+3DCG Studio: WIRED
+Director of Photography: Takashi Yanagida
+Photography Studio: EXPLOSION
+Sound Director: Masanori Tsuchiya
+Sound Production: BIT GROOOVE PROMOTION
+Music: Ruka Kawada & Yayoi Sekimukai & Shūhei Mutsuki
+Editing: Maki Sendo
+Editing Studio: REAL-T
+</div>
+
+## sugoileaks — post 3946
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3946_1778573738.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+MOB PSYCHO 10TH ANNIVERSARY!
+</div>
+
+## sugoileaks — post 3945
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3945_1778573739.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New KV for upcoming season 2 of "DEVIL MAY CRY"
+
+S2 will Start after 4 hours on May 12 in NETFLIX!!
+
+Studio: MiR
+</div>
+
+## KiranTimes — post 1064
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1064_1778573740.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KiranTimes — post 1063
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«من بخاطر رییس‌جمهور شی، مردی که همه او را مورد احترام قرار می‌دهند، رهبر کشور بی‌نظیر چین؛ محاصره را لغو کردم و به سی و هشتمین جنگ در دوره دوم ریاست جمهوری خودم پایان دادم. بزودی ناوگانی عظیم از تجهیزات نظامی و مواد غذایی در اسکله‌های سپاه پاسداران پهلو خواهند گرفت تا آن‌ها را دوباره بزرگ کنیم. یک روز بزرگ برای جهان، برای همه. خداوند جمهوری اسلامی را حفظ کند.»
+</div>
+
+## KiranTimes — post 1062
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1062_1778573740.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KiranTimes — post 1061
+
+<div align="center">
+  <a href="telegram/content/KiranTimes_1061_1778573741.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## KiranTimes — post 1060
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1060_1778573742.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Middle_East_Spectator — post 31974
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_31974_1778573742.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸
+🇮🇷
+⚡️ — President Trump has become increasingly frustrated with how Iran is handling negotiations to end the war, and some aides say he is now more seriously considering a resumption of major combat operations than he has in weeks, according to CNN. 
+➡️ Trump…
+</div>
+
+## Middle_East_Spectator — post 31973
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_31973_1778573743.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸
+🇮🇷
+⚡️ — President Trump has become increasingly frustrated with how Iran is handling negotiations to end the war, and some aides say he is now more seriously considering a resumption of major combat operations than he has in weeks, according to CNN.
+
+
+➡️ Trump is particularly impatient over the continued closure of the Strait of Hormuz and what he sees as divisions within Iran’s leadership preventing meaningful concessions on nuclear talks.
+
+
+➡️ Officials inside the administration are divided on the next step: some are advocating a tougher strategy, including targeted strikes to further weaken Iran’s position, while others are urging the White House to continue pursuing diplomacy.
+</div>
+
+## LiveMuseumOfIgnorancy — post 11503
+
+
+
+
+## DailyJapaneseThread — post 6693
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtu.be/8G4mcapKG24?si=_b1afdYNU94_ZAXV
+</div>
+
+## animenewsnetwork_feed — post 41561
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41561_1778573743.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+'With Vengeance, Sincerely, Your Broken Saintess' Light Anime Gets 2nd Season in October
+
+Saya Fukase directs season 2 at IMAGICA Infos / Imageworks Studio, replacing 1st season director Chisaki
+</div>
+
+## animenewsnetwork_feed — post 41560
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41560_1778573744.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+I'm Fine With Being the Second Girlfriend Light Novel Series End
+
+Novels debuted in 2021
+</div>
+
+## animenewsnetwork_feed — post 41559
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41559_1778573744.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Happy Maid Day From Around the Anime World, Part II
+
+Featuring Too Many Losing Heroines!, The Classroom of a Black Cat and a Witch, Black Butler, Mahoromatic, Honō no Tōkyūjo: Dodge Danko, Tsumiki Ogami's Not-So-Ordinary Life, Trapped in a Dating Sim, & more!
+</div>
+
+## animenewsnetwork_feed — post 41558
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41558_1778573745.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Happy Maid Day From Around the Anime World, Part I
+
+Featuring Frieren, Sound! Euphonium, Alya Sometimes Hides Her Feelings in Russian, Masami Obari, The Food Diary of Miss Maid, Puniru is a Kawaii Slime, & more!
+</div>
+
+## animenewsnetwork_feed — post 41557
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41557_1778573745.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New Votoms Anime Unveils Main Staff, 2-Film Rollout With 1st Opening on November 20
+
+1983 Votoms creator/director/ Ryōsuke Takahashi serves as supervisor with music scored by Kenji Kawai
+</div>
+
+## animenewsnetwork_feed — post 41556
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+I Made Friends With the Second Prettiest Girl in My Class Anime Reveals 3rd Promo Video, More Cast Members
+
+Rikuya Yasuda, Shinji Kawada, Yurina Amami join anime's cast
+</div>
+
+## animenewsnetwork_feed — post 41555
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41555_1778573746.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Sword Art Online's Echoes of Aincrad Game Previews 'Unanswered//butterfly' Bonus Anime
+
+Promotional anime included in game's Ultimate, Premium Editions
+</div>
+
+## animenewsnetwork_feed — post 41554
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41554_1778573746.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Eren the Southpaw Anime Casts Natsumi Fujiwara
+
+Akari Kishi's manager appears in episode 6 on Tuesday
+</div>
+
+## animenewsnetwork_feed — post 41553
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41553_1778573747.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Live-Action Summer of You Series Announces Cast, Staff
+
+Tomoya Oku plays Wataru Toda, Kazuto Mokudai plays Chiharu Saeki
+</div>
+
+---
 📅 بروزرسانی: 1405/02/22 01:49
 ---
 
