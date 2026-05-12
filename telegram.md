@@ -7,6 +7,534 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/22 18:55
+---
+
+## Configshub2 — post 1686439
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://937dde02-4ce6-4f0d-a3be-27aef7d3ef46@s4.tehranionliine.ir:80?path=%2F&security=&encryption=none&type=ws#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686438
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1686438" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686437
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1686437" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686436
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1686436" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686435
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1686435" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686434
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1686434" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686433
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1686433" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686432
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1686432" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686431
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1686431" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686430
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1686430" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686429
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1686429" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686428
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://799f939b-964b-4416-84ac-18a6ace7fe70@camp.nahidapp.com:443?encryption=none&type=ws&security=tls&path=%2FIF_VPN_Bot&host=camp.nahidapp.com&sni=camp.nahidapp.com&allowInsecure=0#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://d230f0f7-6826-4f8e-8dbb-69ee2c837358@24dc5c91924c5346.freestly.sapienza-mahan.ir:443?mode=auto&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=1&host=nazan-baba-z1.global.ssl.fastly.net&fp=firefox&type=xhttp&allowInsecure=1&sni=speedtest.net#[🇮🇹]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪᴛᴀʟʏ(ɪᴛ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686426
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1686426" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686425
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1686425" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686424
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1686424" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686423
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1686423" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686422
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1686422" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686421
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1686421" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1686420
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1686420" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## sugoileaks — post 3950
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3950_1778599542.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New Story KV for the ongoing fantasy anime "WITCH HAT ATELIER"
+
+EP8 will premiere in Crunchyroll on May 18, 2026 & it'll consist of 13 EPs!!
+
+Studio: BUG FILMS
+
+Based on the Fantasy Manga by Shirahama Kamome.
+
+SUMMARY:
+The story centers on Coco, a girl who lives in a little village, and who has always dreamed of becoming a wizard.
+But being born without magical aptitude meant that she could never become a wizard, and could never hope to witness magic's spark.
+She gave up on her dream.
+But one day, a traveling wizard named Qifrey came to her village, and she happened to see him performing magic.
+
+
+STAFF:
+Director: Ayumu Watanabe
+Ass. Director: Jun Shinohara
+Series Comp.: Hiroshi Seko
+Character Design & Chief Animation Director: Kairi Unabara
+Art Director: Ryouta Gotou
+Color Design: Naomi Nakano
+Director Of Photography: Tadashi Kitaoka
+Music: Yuka Kitamura
+</div>
+
+## Deep_iranian_web — post 18585
+
+<div align="center">
+  <a href="https://t.me/deep_iranian_web/18585" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 دکلمه جدیدِ امیرخانِ تتلو از زندان 🙂 💡...
+</div>
+
+## Deep_iranian_web — post 18584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷ایرانسل و همراه اول به‌زودی سرویس جدید «سیمکارت پرو» را برای مشترکان خود عرضه خواهند کرد.
+این سرویس با هدف بهبود امنیت، افزایش سرعت و ارائه قابلیت‌های هوشمند طراحی شده است.
+
+برای ثبت درخواست اولیه و انجام بررسی‌ها و اعتبارسنجی لازم، کافیست کد زیر را ارسال کنید:
+🟡ایرانسل: ارسال کد ۵۵۱۲۹۲۷۷ به شماره ۷۵۷۵
+
+🔵همراه اول: ارسال کد ۳۵۷۸۹ به شماره ۸۹۸۹
+</div>
+
+## Irancirclejerks — post 1290
+
+<div align="center">
+  <img src="telegram/content/Irancirclejerks_1290_1778599543.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KiranTimes — post 1071
+
+<div align="center">
+  <a href="telegram/content/KiranTimes_1071_1778599544.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خودشون به ایران می‌گن کیران و حس می‌کنن: «واهای دادش عجب ریج‌بیتی, واهای برعندازها واهای ما طرفدار انسانیت‌ایم
+</div>
+
+## KiranTimes — post 1070
+
+<div align="center">
+  <a href="telegram/content/KiranTimes_1070_1778599545.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ما رو پنج دقیقه با یک پهلوی‌ستیز داخل یه اتاق تنها بذارید تا جاویدشاه رو براتون معنی کنیم.
+</div>
+
+## KiranTimes — post 1069
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ما رو پنج دقیقه با یک پهلوی‌ستیز داخل یه اتاق تنها بذارید تا جاویدشاه رو براتون معنی کنیم.
+</div>
+
+## KiranTimes — post 1068
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1068_1778599546.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این کودکان بسیجی-برنی‌سندرزی که یکم با دیدن میم تو اکسپلور انگلیسی محاوره‌ای یاد گرفتن هم جدیدا با کانفیگ گیگ ۴۰۰ هزار تومان(حاصل کوس دادن مادرشونه، وگرنه پایگاه محل حتی برای خط پرو هم اینا رو آدم حساب نکرده) میان اینجا طلب کیر برای مادرشون. فکر می‌کنن اسم…
+</div>
+
+## KiranTimes — post 1067
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کودکان بسیجی-برنی سندرزی برپاخیزید!
+</div>
+
+## KiranTimes — post 1066
+
+<div align="center">
+  <a href="telegram/content/KiranTimes_1066_1778599547.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این کودکان بسیجی-برنی‌سندرزی که یکم با دیدن میم تو اکسپلور انگلیسی محاوره‌ای یاد گرفتن هم جدیدا با کانفیگ گیگ ۴۰۰ هزار تومان(حاصل کوس دادن مادرشونه، وگرنه پایگاه محل حتی برای خط پرو هم اینا رو آدم حساب نکرده) میان اینجا طلب کیر برای مادرشون. فکر می‌کنن اسم…
+</div>
+
+## KiranTimes — post 1065
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ahhhhhhhhh 14y kirani got rage baited
+</div>
+
+## shitpostkid — post 17998
+
+<div align="center">
+  <a href="telegram/content/shitpostkid_17998_1778599548.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## Middle_East_Spectator — post 32008
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/🇰🇼 NEW: Kuwait’s Foreign Ministry summoned the Iranian ambassador, but he did not show up
+
+Instead, a note of protest was delivered to the embassy for Iran’s alleged infiltration of Kuwaiti territory.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32005
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/🇻🇦NEW: Pope Leo XIV presented Iran’s ambassador to the Vatican, Ayatollah Hossein Mokhtari, with the highest diplomatic honor of the Vatican, the ‘Order of Pius’
+
+The medal was awarded for Iran’s extraordinary contributions to peace and interfaith cooperation between Christians and Muslims.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32004
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇦🇹 NEW: The Austrian Air Force scrambled Eurofighter Typhoon fighter jets twice in the past two days, to intercept USAF Pilatus U-28A ‘Draco’ special operation aircrafts that entered Austrian airspace without permission, forcing them to turn back – Die Welt
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32003
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/🇴🇲 NEW: Iranian and Omani officials held a joint meeting today about the future of the Strait of Hormuz
+
+Oman’s position has apparently shifted since last time, and they have recognized joint Iranian-Omani control over the Strait as sovereign territory.
+
+Iran promised the Omani side that there will be revenue sharing between both sides, as part of good neighbourly relations and Islamic friendship.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32002
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32002_1778599548.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸 NEW: Trump posts U.S. dollar bills with his own face on it, and the text ‘God bless Donald Trump’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32001
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_32001_1778599549.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷 WATCH: During the exercise, the mock up of a ‘Black Hawk’ helicopter was destroyed by an FPV drone
+
+It seems that Iran has already prepared to begin widespread use of FPV drones against U.S. special forces in case of any infiltration attempt.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31992
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/
+🇮🇷 NEW: Tehran’s ‘Muhammad Rasool Allah’ IRGC corps carried out unannounced wartime exercises to thwart enemy infiltration attempts @Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 31991
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Dear subscribers, for 24/7 updates make sure to check out our friends’ channel Geopolitics Prime
+</div>
+
+## Middle_East_Spectator — post 31988
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/
+🇮🇷 NEW: Tehran’s ‘Muhammad Rasool Allah’ IRGC corps carried out unannounced wartime exercises to thwart enemy infiltration attempts
+
+@Middle_East_Spectator
+</div>
+
+## DailyJapaneseThread — post 6697
+
+<div align="center">
+  <a href="telegram/content/DailyJapaneseThread_6697_1778599550.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## DailyJapaneseThread — post 6696
+
+<div align="center">
+  <a href="telegram/content/DailyJapaneseThread_6696_1778599551.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## DailyJapaneseThread — post 6695
+
+<div align="center">
+  <img src="telegram/content/DailyJapaneseThread_6695_1778599553.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/🇯🇵 NEW: Due to the oil shortage, Japan has started printing food packaging in black and white – Reuters
+
+@Middle_East_Spectator
+</div>
+
+## DailyJapaneseThread — post 6694
+
+<div align="center">
+  <a href="telegram/content/DailyJapaneseThread_6694_1778599553.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## animenewsnetwork_feed — post 41566
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41566_1778599555.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Nippon Sangoku The Three Nations of the Crimson Sun ‒ Episode 6
+
+This right here is just pure, absolute cinema, baby.
+</div>
+
+## animenewsnetwork_feed — post 41565
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41565_1778599556.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+One Piece (2026-) ‒ Episode 1161
+
+Luffy can abide a lot, but Shanks slander? It’s on sight.
+</div>
+
+## animenewsnetwork_feed — post 41564
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41564_1778599556.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Ramparts of Ice ‒ Episode 6
+
+You'll have to forgive me for being less than enthralled by Minato's struggle.
+</div>
+
+## animenewsnetwork_feed — post 41563
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41563_1778599557.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Witch Hat Atelier ‒ Episode 7
+
+Agott curls around her pain, holding it tight like an anti-security blanket.
+</div>
+
+## animenewsnetwork_feed — post 41562
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41562_1778599557.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Osamu Tezuka's Autobiographical War Manga, Postwar Life Get Live-Action TV Special
+
+"Tezuka Osamu no Sensō" to recount Paper Fortress manga, Tezuka's creative struggles in 1970s
+</div>
+
+---
 📅 بروزرسانی: 1405/02/22 11:45
 ---
 
