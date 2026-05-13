@@ -7,6 +7,440 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 01:24
+---
+
+## anime_news — post 10214
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"Botan Kamiina Fully Blossoms When Drunk" TV anime PV vol.2
+</div>
+
+## anime_news — post 10213
+
+<div align="center">
+  <img src="telegram/content/anime_news_10213_1778709290.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"Magical Girl Lyrical NANOHA EXCEEDS Gun Blaze Vengeance" TV anime main visual. Begins July 4.
+</div>
+
+## Configshub2 — post 1706420
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706420" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706419
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706419" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706418
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706418" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706417
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706417" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706416
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706416" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706415
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706415" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706414
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706414" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706413
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706413" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706412
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706412" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706411
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://6202b230-417c-4d8e-b624-0f71afa9c75d@172.238.14.152:443?encryption%%%%6871%%%55%%%%8875jvcgj%%%8%%9878%%vless://6202b230-417c-4d8e-b624-0f71afa9c75d@172.238.14.152:443?encryption%%%%6871%%%55%%%%8875jvcgj%%%8%%9878%%vless://6202b230-417c-4d8e-b624-0f71afa9c75d@172.238.14.152:443?encryption%%%%6871%%%55%%%%8875jvcgj%%%%%kwkfngnsj#[🇯🇵]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ᴊᴀᴘᴀɴ(ᴊᴘ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706410
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706410" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706409
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706409" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706408
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706408" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706407
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706407" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706406
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706406" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706405
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706405" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706404
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706404" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706403
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706403" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706402
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706402" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1706401
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1706401" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## sugoileaks — post 3958
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3958_1778709301.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New Vol.2 PV for ongoing alcohol × girls love anime "KAMIINA BOTAN, HER DRUNKEN APPEARANCE IS LIKE A LILY"
+
+EP6 will premiere on May 15, 2026!!
+
+Studio: SOIGNE
+
+Based on the Campus GL Comedy Story by Hey.
+
+SUMMARY:
+The Story Centers on Botan Kamiina, a University student who lives in Chichibu, Saitama.
+She drinks for the first time after encountering Ibuki Tonami, her dorm's leader.
+Ibuki, who has trouble drinking in public, quickly develops a friendship with Botan, becoming drinking partners with her.
+As a newcomer to drinking, Botan spends her time trying different kinds of alcohol.
+
+
+STAFF:
+Director: Takashi Sakuma
+Ass. Director: Shuntaro Tozawa
+Series Comp. & Script: Yoko Yonaiyama
+Character Design: Kou Yoshinari
+Sub-Character Design & Chief Animation Director: Miyachi
+Prop Design & Chief Animation Director: Yusuke Matsuo
+Costume Design: Arisa Fujii
+Art Director: Ayumu Miyakoshi
+Color Design: Yui Ito
+Director of Photography: Yoshimitsu Tomita
+3D director: Kohei Ogawa
+Editing: Kiyoshi Hirose
+Animation Producer: Hikaru Murakami
+Music: Kana Hashiguchi
+Sound Director: Jin Aketagawa
+Sound Production: MAGIC CAPSULE
+</div>
+
+## shitpostkid — post 18000
+
+<div align="center">
+  <img src="telegram/content/shitpostkid_18000_1778709305.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+>Be multimillionaire playboy
+>Ethnically jewish
+>Wealth gained from hidden and possibly fraudulent means
+>Gets slaps on the wrist for crimes
+>Travels the world
+>Known for his harem of young women
+>Has ties with intelligence agencies
+>Tries to entrap people
+>Be Dan Bilzerian
+
+Pic unrelated
+</div>
+
+## Middle_East_Spectator — post 32057
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— Reminder, we take ads
+
+@Elias_MES for inquiries.
+</div>
+
+## Middle_East_Spectator — post 32056
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— You know, this is the funny thing about Israel.
+
+They’re so giddy about actually being friends with an Arab nation for once, that they literally cannot shut the fuck up for 5 minutes about a top secret meeting between senior officials.
+
+Publication of this meeting severely annoyed the UAE because it undermines its credibility in the Arab world even more, which actually hurts cooperation with Israel in the long run.
+
+If Israel wants to keep countries like the UAE on their side, they have to get rid of this hubris and the need to constantly brag about how good their ties are. Because that position is indefensible to the domestic Arab audience, and the UAE knows it.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32055
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32055_1778709305.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/🇮🇱/🇦🇪 Iran’s Foreign Minister, Abbas Araqchi:
+
+‘Netanyahu has now publicly revealed what Iran’s security services long ago conveyed to our leadership.
+
+Enmity with the great people of Iran is a foolish gamble. Collusion with Israel in doing so? Unforgivable.
+
+Those colluding with Israel to sow division will be held to account.’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32053
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇦🇪/🇮🇱 NEW: The UAE denies that Neyanyahu visited Abu Dhabi in secret during the war against Iran
+
+Which is interesting to say the least, because the Israeli Prime Minister’s Office confirmed the visit in an official statement on their X page.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32052
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32052_1778709306.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+There is this LLM (Large Language Model, basically an AI) that’s only trained on pre 1930s content. It’s so funny to see all the responses.
+</div>
+
+## Middle_East_Spectator — post 32051
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+There is this LLM (Large Language Model, basically an AI) that’s only trained on pre 1930s content.
+
+It’s so funny to see all the responses.
+</div>
+
+## Middle_East_Spectator — post 32050
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32050_1778709307.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱 NEW: Israeli journalist Itay Blumental complains that his work has become almost impossible due to the severe censorship
+
+He says most journalists in Israel spend the majority of their time navigating the censorship laws.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32049
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇮🇱/🇾🇪 BREAKING: The IDF says it intercepted a drone launched from Yemen above Eilat @Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32048
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱/🇮🇷/🇺🇸 NEW: Israeli media, citing sources, says the IDF Home Front Command may tighten guidelines after the end of Trump’s visit to China
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32047
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32047_1778709308.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇮🇱/🇦🇪/🇮🇷 NEW: Israel’s Prime Minister office confirms for the first time that Netanyahu secretly met with UAE leader Mohammed bin Zayed in Abu Dhabi during the war against Iran, leading to a ‘historic breakthrough in relations’
+
+After the meeting, Israel shipped an Iron Dome system to the United Arab Emirates, and the two countries agreed on a shared strategy to counter Iran and even Saudi Arabia.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32046
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32046_1778709308.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇫🇷/🇮🇷 NEW: The reason French President Emmanuel Macron was slapped in the face by his wife Brigitte is because Macron was caught in an affair with Iranian actress Golshifteh Farahani, according to newly revealed text messages - The Times
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32045
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷 NEW: Some Iranian media hint that Iran may launch a ‘special military operation’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32044
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32044_1778709309.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇨🇳 NEW: Today’s edition of China Daily, the largest English-language newspaper in China and owned directly by the CCP, did not mention the U.S.-China meeting on the frontpage, choosing instead to cover expanding ties with Tajikistan
+
+@Middle_East_Spectator
+</div>
+
+## LiveMuseumOfIgnorancy — post 11507
+
+<div align="center">
+  <img src="telegram/content/LiveMuseumOfIgnorancy_11507_1778709310.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 20:18
 ---
 
