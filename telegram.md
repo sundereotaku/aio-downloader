@@ -7,6 +7,454 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 11:54
+---
+
+## Configshub2 — post 1697022
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://2fbc0304-135b-4fcd-a0cb-d07b5bb7a719@arvancloud.ir:80?path=%40TunizoNET&security=none&encryption=none&host=ri.amirenzohost.ir&type=ws#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697021
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1697021" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697020
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1697020" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697019
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1697019" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697018
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1697018" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697017
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1697017" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697016
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1697016" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697015
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://92177ca1-c032-4335-a166-c1947a3447b4@snapp.ir:80?path=%2F&security=none&encryption=none&host=M1.snllshop.ir&type=ws#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697014
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://c07bd5a4-c5b6-4d00-9939-b5a92d5f4f99@188.213.198.136:443?security=tls&type=ws&headerType=&path=%2Fws%3Fed%3D600&host=dl2.soft98.ir&sni=dl2.soft98.ir&fp=chrome&pcs=b8323aba913b3479e4404bac8d2a62bc016e75b7e03ba2a53b962e240c9c8d0e&allowInsecure=1#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697013
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1697013" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697012
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1697012" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697011
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://6202b230-417c-4d8e-b624-0f71afa9c75d@172.238.14.152:443?encryption%%%%6871❌⭕️🛑%%%55%%%%8875jvcg6j%%%8%%9878%%vles۱۱ی❌❌❌❌۸۷۶۰۰#[🇯🇵]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ᴊᴀᴘᴀɴ(ᴊᴘ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697010
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://6202b230-417c-4d8e-b624-0f71afa9c75d@172.238.14.152:443?encryption%%%%6871❌⭕️🛑%%%55%%%%8875jvcg6j%%%8%%9878%%vles۱۱ی❌❌❌❌۸۱۱۱۱#[🇯🇵]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ᴊᴀᴘᴀɴ(ᴊᴘ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697009
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1697009" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697008
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1697008" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697007
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1697007" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697006
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1697006" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697005
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://6202b230-417c-4d8e-b624-0f71afa9c75d@172.238.14.152:443?encryption%%%%6871❌⭕️🛑%%%55%%%%8875jvcg6j%%%8%%9878%%vles۱۱ی❌❌❌❌تسس#[🇯🇵]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ᴊᴀᴘᴀɴ(ᴊᴘ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697004
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://bafacd98-136a-4530-838d-4e5c51838dac@146.185.142.231:443?encryption=none&security=tls&sni=juzi8186.qea.ccwu.cc&fp=firefox&insecure=0&allowInsecure=0&ech=encryptedsni.com%2Bhttps%3A%2F%2Fdns.alidns.com%2Fdns-query&type=ws&host=juzi8186.qea.ccwu.cc&path=%2Fforums%2Ffaq%2Fjuzibaipiao%3Fed%3D2560#[🇳🇱]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɴᴇᴛʜᴇʀʟᴀɴᴅs(ɴʟ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1697003
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://6202b230-417c-4d8e-b624-0f71afa9c75d@172.238.14.152:443?encryption%%%%6871❌⭕️🛑%%%55%%%%8875jvcg6j%%%8%%9878%%vles۱۱ی❌❌❌❌۹۱۱#[🇯🇵]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ᴊᴀᴘᴀɴ(ᴊᴘ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## sugoileaks — post 3951
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The Original Anime will Premiere in July 2026!!
+</div>
+
+## dangokimochi — post 11850
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11850_1778660644.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11849
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11849_1778660645.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11848
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11848_1778660645.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11847
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11847_1778660646.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11846
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11846_1778660647.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11845
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11845_1778660647.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Middle_East_Spectator — post 32029
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 NEW: One of Iran’s underground missile bases, located near Esfahan, was bombed almost 20 separate times during the war, an average of once every two days, with bunker busting ammunition and smart bombs, including from B-2s and B-52s
+
+Despite the immense amount of firepower used, the base never stopped firing for more than half a day, before returning back to operations.
+
+One Esfahan resident said: ‘This mountain, we see it get bombed almost every night, we see the smoke rise. Yet when we wake up in the morning, it’s from these very same mountains that we see missiles rising into the sky’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32028
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32028_1778660648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇱/🇵🇸 NEW: An Israeli woman who ordered Yoga pants from a company in America instead received a note with ‘Free Palestine, Hamas will win, death to the IDF’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32027
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇮🇷/🇵🇰 NEW: Images from Karachi airport reveal for the first time that Iran flew some planes to Pakistan in order to avoid destruction by Israel during the 12-day war back in June Some of Iran's Air Force assets are still being kept safe inside Pakistan…
+</div>
+
+## Middle_East_Spectator — post 32025
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇮🇷/🇵🇰 NEW: Images from Karachi airport reveal for the first time that Iran flew some planes to Pakistan in order to avoid destruction by Israel during the 12-day war back in June
+
+Some of Iran's Air Force assets are still being kept safe inside Pakistan, including a KC-707 ELINT aircraft and two Boeing 747 transport aircraft.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32023
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32023_1778660648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/🇵🇰 NEW: Pakistan sheltering Iranian Air Force C-130s has been confirmed by satellite imagery
+
+However, I don’t understand why the Trump people are suddenly shocked or outraged by this, as Iranian planes were already known to be stationed in Karachi during 12-Days War.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32022
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32022_1778660649.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Trump posts Venezuela as 51st state.
+</div>
+
+## Middle_East_Spectator — post 32021
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 NEW: The current estimate is that about 10% of Iran’s missile bases have been permanently disabled by U.S. strikes, according to NYT
+
+The remaining 90% of missile bases and launch sites throughout the country remain ‘either fully or partially operational’, and are likely too heavily fortified to disable with airstrikes alone.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32020
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32020_1778660649.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 NEW: A secret U.S. intelligence assessment shows that Iran still has access to 90% of its underground missile bases and launch sites nationwide — including at least 30 out of 33 missile sites along the Strait of Hormuz that are still operational – New York Times
+
+@Middle_East_Spectator
+</div>
+
+## LiveMuseumOfIgnorancy — post 11506
+
+<div align="center">
+  <img src="telegram/content/LiveMuseumOfIgnorancy_11506_1778660650.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## LiveMuseumOfIgnorancy — post 11505
+
+<div align="center">
+  <img src="telegram/content/LiveMuseumOfIgnorancy_11505_1778660650.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## animenewsnetwork_feed — post 41577
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41577_1778660651.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Lupin III Composer, Jazz Pianist Yuji Ohno Dies at 84
+
+Ohno composed Lupin III anime's music, iconic theme song since Lupin III: Part II in 1977
+</div>
+
+## animenewsnetwork_feed — post 41576
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41576_1778660651.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Captain Tsubasa 2: World Fighters Soccer Game Launches on August 28
+
+Game launches for Switch, PS5, Xbox X|S, PC
+</div>
+
+## animenewsnetwork_feed — post 41575
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41575_1778660652.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Man Arrested for Alleged Bomb Threat Against Nintendo Headquarters
+
+Kyoto police arrest 27-year-old for obstructing a business with force
+</div>
+
+## animenewsnetwork_feed — post 41574
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41574_1778660652.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Former Tekken Game Producer Katsuhiro Harada Launches VS Studio SNK
+
+SNK to collaborate with subsidiary on game software development
+</div>
+
+## animenewsnetwork_feed — post 41573
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41573_1778660652.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+eBay Rejects GameStop's Acquisition Bid
+
+eBay board chair: GameStop's May 3 proposal is "neither credible nor attractive"
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 01:18
 ---
 
