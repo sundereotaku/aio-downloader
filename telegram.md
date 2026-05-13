@@ -7,6 +7,637 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 20:18
+---
+
+## Configshub2 — post 1703011
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://ae852d97-85f5-45cf-82a4-254eba345480@144.31.131.33:443?encryption=none&flow=xtls-rprx-vision&fp=chrome&pbk=djH9iD2QV748ocK-wPH7HvDd03lu88zHhS4G-61w6Dc&security=reality&sid=a120&sni=cdn.cdnjst.org&type=tcp#[🇦🇱]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ᴀʟʙᴀɴɪᴀ(ᴀʟ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1703010
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://394f6981-a782-4779-9a85-e6cf22935d93@84.17.37.19:8443?allowInsecure=1&alpn=h2&encryption=none&security=tls&sni=hkg1.fromblancwithlove.com&type=tcp#[🇴🇳]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ʜᴏɴɢᴋᴏɴɢ(ʜᴋ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1703009
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1703009" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1703008
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1703008" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1703007
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://9c79aceb-4649-44ea-9698-b5e9ecf6d6da@156.224.78.8:10001?Telegram=@GozargahAzad,@GozargahAzad,@GozargahAzad,@GozargahAzad,@GozargahAzad,@GozargahAzad,@GozargahAzad&security=reality&type=tcp&sni=www.icloud.com&fp=chrome&flow=xtls-rprx-vision&sid=f7223dab&pbk=D_kMOsg1KCtT0tudPFVDXGuEcSqZGtUYqBB-BiIxmls&encryption=none#[🇴🇳]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ʜᴏɴɢᴋᴏɴɢ(ʜᴋ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1703006
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://d0c077b7-a8a0-4613-b6c3-b3121f38be1e@snapp.ir:80?path=/graphql?ed=2560&security=none&encryption=none&host=ss10.limitless-cloud.ir&type=ws#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1703005
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://c387b0f2-5d9e-4c95-882d-1d5eeb443ce2@varzesh3.com:443?path=/movie&security=tls&alpn=h2,http/1.1&encryption=none&insecure=0&host=nginx-3b1e7ed824-abol.apps.ir-central1.arvancaas.ir&fp=chrome&type=ws&allowInsecure=0&sni=nginx-3b1e7ed824-abol.apps.ir-central1.arvancaas.ir#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1703004
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://981fca81-5be1-41f8-ac9b-d138e8109943@103.15.90.134:49678?encryption=none&security=tls&sni=babayaga-6i7.pages.dev&type=ws&host=babayaga-6i7.pages.dev&path=/?ed=2560&Telegram🇨🇳@WangCai2#[🇻🇳]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ᴠɪᴇᴛɴᴀᴍ(ᴠɴ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1703003
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://d5145ecf-ac75-4832-8fc2-3c925eec2d09@varzesh3.com:80?type=ws&encryption=none&path=/ws&host=nobody.fasterspeed.ir&security=none#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1703002
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1703002" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1703001
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1703001" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1703000
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+trojan://telegram-id-privatevpns@3.122.87.69:22222?security=tls&alpn=http/1.1&headerType=none&type=tcp&sni=trojan.burgerip.co.uk#[🇩🇪]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɢᴇʀᴍᴀɴʏ(ᴅᴇ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1702999
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://8c4604ef-749c-4b56-adf1-7da405002a21@216.24.57.1:443?path=%2F&security=tls&encryption=none&insecure=0&host=qyi.fqjd663.ggff.net&type=ws&allowInsecure=0&sni=qyi.fqjd663.ggff.net#[🏁]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ᴜɴɪᴛᴇᴅsᴛᴀᴛᴇs(ᴜs)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1702998
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://8fb9340e-8fa3-4832-8e17-fb254a7b30e0@snapp.ir:8080?encryption=none&type=ws&path=%2F&host=ts.programming-coding.ir#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1702997
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+trojan://telegram-id-privatevpns@3.122.87.69:22222?security=tls&alpn=http/1.1&headerType=none&type=tcp&sni=trojan.burgerip.co.uk#[🇩🇪]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɢᴇʀᴍᴀɴʏ(ᴅᴇ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1702996
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1702996" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1702995
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1702995" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1702994
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1702994" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1702993
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1702993" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1702992
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://97aaeab2-f8a7-4ec7-b9e2-c5cac9559083@snapp.ir:80?mode=stream-one&path=%2F&security=none&encryption=none&host=zeroemergency.qpax.ir&type=xhttp#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## sugoileaks — post 3957
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3957_1778690906.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+OTAGAL SPECIAL ILLUSTRATION!
+</div>
+
+## sugoileaks — post 3956
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3956_1778690907.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New KV for upcoming season 2 of "DEVIL MAY CRY" S2 will Start after 4 hours on May 12 in NETFLIX!! Studio: MiR
+</div>
+
+## sugoileaks — post 3955
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3955_1778690907.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+BLUELOCK Live-Action Movie New KV🥸
+</div>
+
+## sugoileaks — post 3954
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New Main KV for upcoming brand-new anime "Magical Girl Lyrical Nanoha EXCEEDS Gun Blaze Vengeance" The anime will premiere on July 4, 2026 with a one-hour special episode!! Studio: SEVEN ARCS. Main Cast: ISLANDERS: Shiina Kuze | CV: Azusa Tachibana Setsuna…
+</div>
+
+## sugoileaks — post 3952
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3952_1778690908.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New Main KV for upcoming brand-new anime "Magical Girl Lyrical Nanoha EXCEEDS Gun Blaze Vengeance"
+
+The anime will premiere on July 4, 2026 with a one-hour special episode!!
+
+Studio: SEVEN ARCS.
+
+
+Main Cast:
+
+ISLANDERS:
+Shiina Kuze | CV: Azusa Tachibana
+Setsuna Kuze | CV: Rina Hidaka
+
+U.N.I.A EXCEEDS:
+Nanoha Takamachi | CV: Yukari Tamura
+Fate Testarossa Harlaown | CV: Nana Mizuki
+Hayate Yagami | CV: Kana Ueda
+
+UNKNOWN:
+Towa Yorumi | CV: Asaki Yuikawa
+Shiori Aizawa | CV: Chiharu
+Yuuna Kitamori | CV: Aika Kobayashi
+Aoi Niina | CV: Ayasa Ito
+Yuzu Kodera | CV: Hina Aoki
+
+
+STAFF:
+Original Story & Series Comp.: Masaki Tsuzuki
+Director: Takayuki Hamana
+Character Design & Chief Animation Director: Issei Aragaki
+Original Character Design: Shūichi Kawakami
+</div>
+
+## dangokimochi — post 11851
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11851_1778690909.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KiranTimes — post 1080
+
+<div align="center">
+  <a href="telegram/content/KiranTimes_1080_1778690909.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## cyberfiend666 — post 32722
+
+
+
+
+## cyberfiend666 — post 32721
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32721_1778690911.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32720
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32720_1778690912.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32717
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32717_1778690913.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32716
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32716_1778690914.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32715
+
+<div align="center">
+  <a href="telegram/content/cyberfiend666_32715_1778690914.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+From chat
+</div>
+
+## cyberfiend666 — post 32714
+
+<div align="center">
+  <a href="telegram/content/cyberfiend666_32714_1778690915.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## Middle_East_Spectator — post 32043
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32043_1778690918.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇮🇷/🇰🇼 NEW: Iran’s Foreign Minister Abbas Araqchi says that Kuwait illegally attacked an Iranian boat and detained four citizens
+
+Iran demands the immediate release of its nationals, and reserves the right to respond.
+
+NOTE: This is related to yesterday’s incident, when Kuwait claimed to have detained an IRGC sabotage squad on Bubiyan Island.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32042
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/🇨🇳/🇺🇸 NEW: China is heavily pressuring Iran to sign an agreement with the United States
+
+Iran is considering it, provided that the framework of the deal is in line with national interests, but has informed China that it ‘decides its own policies’
+
+Today, Iran’s deputy Foreign Minister clarified that China is a strategic ally, but that Iran’s foreign policy is not dictated by ‘East or West’, but rather by ‘Islam and true independence’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32041
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇺🇸/🇮🇷 Iran’s Vice President, Mohammad Reza Aref: ‘Iran’s sovereign right over the Strait of Hormuz is unquestionable and definite; the matter has already been settled’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32040
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32040_1778690919.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷🇨🇳🇺🇸| The Chinese satellite company MizarVision, who shared satellite images of US bases, says they don’t give a flying damn about US sanctions against their company.
+
+@FotrosResistancee
+</div>
+
+## Middle_East_Spectator — post 32039
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Sometimes when I’m in public transport I pretend to be a mentally insane person so nobody sits next to me
+</div>
+
+## Middle_East_Spectator — post 32038
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32038_1778690920.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇧🇭/🇮🇷 Let’s see the ‘evidence’ Bahrain presented after arresting more than 50 ‘Iranian cells’:
+
+– Laptops, PCs and iPads
+– Cash (ok?)
+– Shia religious books
+– Binoculars (wow)
+– Two Hezbollah flags printed on A4 paper (lmao)
+– Two decorative Zulfiqar swords
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32036
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32036_1778690920.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— Asentum, the new ultra-safe and anonymous crypto blockchain
+
+🔹 Post-quantum cryptography market hits $15B by 2030
+🔹 NSA mandates quantum-safe systems for national security by January 2027
+🔹 Apple, Signal & Cloudflare have already migrated
+
+Your favourite blockchain hasn't and the implications are potentially devastating.
+
+The $ASE presale is gone. The launch isn't — 17:00 UTC today on Uniswap. Get your Web3 wallet ready and join the community @asentum
+
+https://www.asentum.com/
+</div>
+
+## Middle_East_Spectator — post 32035
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷 NEW: Sources say that preparations for the grand funeral ceremony of Shaheed Ayatollah Khamenei are in advances stages There are extensive logistical preparations being made to avoid stampedes and manage the crowds. Besides Iranians, more than 1 Million…
+</div>
+
+## Middle_East_Spectator — post 32034
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_32034_1778690920.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/
+🇹🇷/🇮🇶 NEW: Iran targeted and destroyed a radar on top of a mountain in Halabja, Iraqi Kurdistan
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32033
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷 NEW: Sources say that preparations for the grand funeral ceremony of Shaheed Ayatollah Khamenei are in advances stages
+
+There are extensive logistical preparations being made to avoid stampedes and manage the crowds.
+
+Besides Iranians, more than 1 Million Iraqi citizens have already registered for the funeral.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32032
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32032_1778690921.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Hezbollah teases another FPV video.
+</div>
+
+## Middle_East_Spectator — post 32031
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32031_1778690922.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/🇦🇪 NEW: The UAE has started building anti-drone cages and nets around their oil tanks in various places around the country
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32030
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32030_1778690922.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇨🇳 NEW: President Trump has landed in China
+
+@Middle_East_Spectator
+</div>
+
+## DailyJapaneseThread — post 6698
+
+<div align="center">
+  <img src="telegram/content/DailyJapaneseThread_6698_1778690923.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## animenewsnetwork_feed — post 41584
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41584_1778690924.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The Irregular at Magic High School THE MOVIE - Yotsuba Succession Arc - Anime Film Review
+
+The Irregular at Magic High School THE MOVIE - Yotsuba Succession Arc - serves as the emotional capstone to the story so far. The truth behind Tatsuya and Miyuki's origins is laid bare, as are their feelings for each other.
+</div>
+
+## animenewsnetwork_feed — post 41583
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41583_1778690924.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Navigating the Slow-Life Vibes of Farming Life in Another World 2
+
+With Atsushi Abe dipping his toes into the realm of cozy isekai this season, we were curious to discuss how he and producer Hiromi Sueta navigated their way through the anime's non-confrontational trenches.
+</div>
+
+## animenewsnetwork_feed — post 41582
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41582_1778690925.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+MARRIAGETOXIN ‒ Episode 6
+
+He might be making himself more dateable by the day, but Gero's still got a long way to go before he can actually find a girlfriend.
+</div>
+
+## animenewsnetwork_feed — post 41581
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41581_1778690925.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Princess Mononoke Kabuki Stage Play's VIdeo Ad Previews Cast in Costume
+
+Play runs from July 3 to August 23 in Tokyo
+</div>
+
+## animenewsnetwork_feed — post 41580
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41580_1778690926.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New Hokuto no Ken -Fist of the North Star- Anime Reveals 3 More Cast Members
+
+Kaori Ishihara, Sayuri Sadaoka, Takashi Matsuyama to appear in episode 8
+</div>
+
+## animenewsnetwork_feed — post 41579
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41579_1778690926.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The Duke's Son Claims He Won't Love Me Yet Showers Me with Adoration Anime Adds 2 More Cast Members
+
+Ryōhei Kimura, Ryōta Suzuki join cast of July series
+</div>
+
+## animenewsnetwork_feed — post 41578
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41578_1778690927.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New Fairy Tail Manga Miniseries to Start 1 Week Sooner on July 29
+
+The official X (formerly Twitter) account for manga creator Hiro Mashima reported on Wednesday that his new Fairy Tail manga miniseries will launch...
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 11:54
 ---
 
