@@ -7,6 +7,404 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 11:40
+---
+
+## Configshub2 — post 1709599
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709599" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709598
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://aeb90139-16eb-40e5-bfc2-78b3c12e3cb4@185.143.235.200:80?path=%2Farvancloud.ir&security=none&encryption=none&host=cofingtaraneh.pointspeed.ir&type=ws#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709597
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709597" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709596
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709596" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709595
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709595" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709594
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709594" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709593
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709593" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709592
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709592" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709591
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709591" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709590
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709590" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709589
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709589" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709588
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709588" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709587
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709587" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709586
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709586" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709585
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709585" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709584
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709584" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709583
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709583" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709582
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709582" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709581
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709581" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1709580
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1709580" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## sugoileaks — post 3963
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The summary of each story is Underneath:
+</div>
+
+## sugoileaks — post 3961
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+WEBTOON × Warner Bros. Animation announced four new titles joining their animated development slate:
+1- THE WOLF & RED RIDING HOOD by XUANN
+2- VAMPIRE FAMILY by Unfins
+3- SABLE CURSE by Little Melon
+4- SNOW & BRIAR (AND THE MIRROR OF SEVEN SINS) by M. Nires.
+
+The projects are currently in development, with no release dates or platform details announced yet!!
+
+The summary of each story is Underneath:
+
+
+The four series joined a broader slate first announced in 2025, which already included titles such as Down to Earth, The Stellar Swordmaster, and Hardcore Leveling Warrior.
+
+The announcement was made during Web Summit Vancouver 2026 by WEBTOON Entertainment CFO David J. Lee and Warner Bros. Animation president Sam Register.
+</div>
+
+## sugoileaks — post 3960
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3960_1778746240.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New KV drawn by Chikashi Kubota for the "ONE PUNCH MAN" 10th Anniversary exhibition event!
+</div>
+
+## sugoileaks — post 3959
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3959_1778746241.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ORICON'S TOP 10 WEEKLY CHART BY SERIES FROM 27TH TO 3TH OF MAY!!
+</div>
+
+## KangZone — post 32246
+
+<div align="center">
+  <a href="telegram/content/KangZone_32246_1778746241.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## KiranTimes — post 1083
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1083_1778746244.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KiranTimes — post 1082
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1082_1778746245.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KiranTimes — post 1081
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1081_1778746245.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## animenewsnetwork_feed — post 41594
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41594_1778746246.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Patlabor EZY Anime's Video Highlights SV2 Members
+
+1st of 3 films debuts on Friday
+</div>
+
+## animenewsnetwork_feed — post 41593
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41593_1778746247.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Writer Mujirushi Shimazaki, Artist Rika Kamiyoshi Launch New Manga
+
+Yami Ochi Reijō wa Maō no Musume Alice ni Tenseishita no de Ōto de Anyaku suru Koto ni Shimashita debuted on May 6
+</div>
+
+## animenewsnetwork_feed — post 41592
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41592_1778746248.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Spy x Family's Anya Joins Hinatazaka46 Idol Group
+
+Hinatazaka46 idols mark Shueisha's 100th anniversary by sharing their favorite manga
+</div>
+
+## animenewsnetwork_feed — post 41591
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41591_1778746248.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Talentless Nana Manga to End in 2 More Chapters
+
+Looseboy, Iori Furuya's manga launched in 2016, inspired 2020 TV anime
+</div>
+
+## animenewsnetwork_feed — post 41590
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41590_1778746249.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Takashi Tezuka to Retire From Nintendo in June
+
+Tezuka joined Nintendo in 1984, became key director in Mario, Zelda franchises
+</div>
+
+## animenewsnetwork_feed — post 41589
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41589_1778746250.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+20th Anniversary Sgt. Frog Film Casts Theme Song Singers ano, Soshina
+
+Comedian Shinobu Hasegawa also joins film as narrator
+</div>
+
+## animenewsnetwork_feed — post 41588
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41588_1778746250.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Ultraman Franchise Gets 60th Anniversary Documentary Film on July 3
+
+With behind-the-scenes footage, interviews with Guillermo del Toro, Hideaki Anno, Hideo Kojima, more
+</div>
+
+## animenewsnetwork_feed — post 41587
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41587_1778746251.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Live-Action Zelda Film to Open 1 Week Sooner on April 30, 2027
+
+The Legend of Zelda game co-creator Shigeru Miyamoto announced on Wednesday that the franchise's live-action film's opening date is now set for April 30,...
+</div>
+
+## animenewsnetwork_feed — post 41586
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41586_1778746252.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Crunchyroll Manga Adds 23 Kodansha USA Catalog Titles, Dricam!! From Shueisha
+
+Attack on Titan, Don't Toy with Me, Miss Nagatoro, Say I Love You., more added to app
+</div>
+
+## animenewsnetwork_feed — post 41585
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41585_1778746253.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Live-Action Blue Lock Film Reveals More Cast, New Key Visual
+
+Keisuke Higashi plays Shōei Barō, Ryōta Miura plays Wanima twins
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 01:24
 ---
 
