@@ -7,6 +7,1064 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 19:52
+---
+
+## anime_news — post 10218
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+(Sugoi) TV ANIME ADAPTATION for Park Saenal's Action Fantasy Web Novel / Webtoon "OVERGEARED" is currently ‘in production. Animation Studio: J.C.STAFF
+</div>
+
+## anime_news — post 10217
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"Medaka Kuroiwa is Impervious to My Charms" Season 2 teaser PV
+</div>
+
+## anime_news — post 10216
+
+<div align="center">
+  <img src="telegram/content/anime_news_10216_1778775756.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"The Cat and the Dragon" TV anime new visual and PV. Begins in July
+</div>
+
+## anime_news — post 10215
+
+<div align="center">
+  <img src="telegram/content/anime_news_10215_1778775757.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"The Forsaken Saintess and her Foodie Roadtrip in Another World" TV anime key visual and PV. Begins in July
+</div>
+
+## Deamnet — post 26574
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ با ترکیب کانفیگ Psiphon + MitM میتونید وصل بشید https://t.me/projectXhttp/346279 
+🍍 همچنین اگه آخرین ورژن سایفون شیروخورشید نصب کنید و برید توی تنظیمات options بعد more options و connection protocols بزراید رو cdn fronting . بدون نیاز به ترکیب و نصب…
+</div>
+
+## Deamnet — post 26573
+
+<div align="center">
+  <a href="telegram/content/Deamnet_26573_1778775758.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ با ترکیب کانفیگ Psiphon + MitM میتونید وصل بشید https://t.me/projectXhttp/346279 
+🍍 همچنین اگه آخرین ورژن سایفون شیروخورشید نصب کنید و برید توی تنظیمات options بعد more options و connection protocols بزراید رو cdn fronting . بدون نیاز به ترکیب و نصب…
+</div>
+
+## Deamnet — post 26572
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ برای ویندوز این روش به صورت یه پکیج گذاشتم آماده فقط کافیه سرتیفیکیت نصب و برنامه را اجرا کنید . آموزش پایین بخونید .
+
+
+1-فایل certificate_generator.bat اجرا کنید تا سرتیفیکیت جدید ساخته بشه . اینتر بزنید تا از برنامه خارج بشه .
+
+2-فایل mycert.crt که ساخته شد اجرا کنید یا روش کلیک راست و گزینه install certificate بزنید . یک صفحه باز میشه روی دکمه install certificate بزنید . گزینه local machine انتخاب کنید و next بزنید . گزینه place all certificate in the following store انتخاب کنید و دکمه browse بزنید . فولدر trusted root certification authorities انتخاب و ok بزنید . دکمه next بزنید . و دکمه finish بزنید . صبر کنید تا پیام نصب بیاد و ok بزنید .
+
+3-بعد از نصب فایل run.bat اجرا کنید . که هسته xray و psiphon اجرا میکنه . کمی صبر کنید تا متصل بشه .
+
+4- بعد از اتصال میتونید از پراکسی های socks5 و http توی تلگرام یا هرجای دیگه استفاده کنید .
+
+http : 127.0.0.1:8060
+socks5 : 127.0.0.1:8050
+
+
+💡 برا اولین اتصال یه چند دقیقه صبر کنید تا سرور پیدا کنه .
+⬇️ لینک دانلود پکیج ترکیب کانفیگ Psiphon + MitM برای ویندوز.
+
+
+
+🌽@DeamNet
+</div>
+
+## Deamnet — post 26571
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ با ترکیب کانفیگ Psiphon + MitM میتونید وصل بشید
+
+https://t.me/projectXhttp/346279
+
+
+🍍 همچنین اگه آخرین ورژن سایفون شیروخورشید نصب کنید و برید توی تنظیمات options بعد more options و connection protocols بزراید رو cdn fronting . بدون نیاز به ترکیب و نصب سرتیفیکت مستقیم وصل میشه
+
+🌐 لینک گیتهاب سایفون شیروخورشید.
+
+
+⬇️ لینک آخرین ورژن سایفون شیروخورشید قابل دانلود.
+
+
+
+✅ برای به اشتراک گذاری هم اگه گزینه share proxy on network روشن کنید . بعد از اتصال توی همون صفحه اصلی 2 تا پروکسی http و socks5 میده بهتون که هر دستگاهی به همون شبکه وصل باشه میتونه از اون پراکسی ها استفاده کنه .
+
+
+🐊@DeamNet
+</div>
+
+## Configshub2 — post 1714401
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://ff8ed07c-f05e-4343-9307-6dbb644d2ce5@94.182.169.82:8085?security=none&allowInsecure=0&encryption=none&type=tcp&host=telewebion.com&path=/&headerType=http#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714400
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1714400" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714399
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1714399" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714398
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1714398" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714397
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1714397" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714396
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1714396" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714395
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1714395" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714394
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1714394" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714393
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://361e4175-4619-4509-992c-dd1ae17caceb@snapp.ir:2082?encryption=none&type=ws&path=/xkto6odtk756f&host=fr.fcserver.ir#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714392
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpBUmd2R1p5d0ErZ2FjZ0dWMjZCdm11MDUrd1ptUlcvaitBZFUrWjhCdDQ0PQ@203.23.128.92:990#[🇴🇳]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ʜᴏɴɢᴋᴏɴɢ(ʜᴋ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714391
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://f3ef1255-1807-45d5-8872-324c6943175b@iman.neticoapp.ir:80?path=/&security=&encryption=none&host=srv3.diamond-tech.online&type=ws#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714390
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://a0b067ac-162d-4237-956d-10b8b471d3f5@54.37.75.187:443?encryption=none&flow=xtls-rprx-vision&fp=chrome&pbk=DHsthrDRMCGcOyJd4xTce_4CCSAJZGwxCdfNrkB_Pgs&security=reality&sid=479826bdfc3eb86e&sni=www.speedtest.net&type=tcp#[🇩🇪]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɢᴇʀᴍᴀɴʏ(ᴅᴇ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714389
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1714389" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714388
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1714388" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714387
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://394f6981-a782-4779-9a85-e6cf22935d93@84.17.37.19:8443?allowInsecure=1&alpn=h2&encryption=none&security=tls&sni=hkg1.fromblancwithlove.com&type=tcp#[🇴🇳]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ʜᴏɴɢᴋᴏɴɢ(ʜᴋ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714386
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://ecc19b72-2cc8-4690-b23d-960d3e3c6d40@172.64.146.118:8443?path=TELEGRAM-MARAMBASHI%2F%3Fed%3D2048&security=tls&encryption=none&host=pardazeshvpn-tg24.pages.dev&fp=random&type=ws&sni=pardazeshvpn-tg24.pages.dev#[🇨🇦]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ᴄᴀɴᴀᴅᴀ(ᴄᴀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714385
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://9ea9e54b-d4da-4773-855a-e5371e4da946@snapp.ir:80?path=%2F&security=none&encryption=none&host=hubfile.zpax.ir&type=ws#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714384
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://145626c5-6653-4a05-9a1e-42c16a5e2b31@varzesh3.com:80?encryption=none&host=dg.restaurantzone.ir&path=/private&security=none&type=ws#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714383
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://245943b8-c164-40c2-8ba5-05094e33dded@varzesh3.com:80?path=/&security=none&encryption=none&host=proto.helexm.ir&type=ws#[🇮🇷]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴀɴ(ɪʀ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1714382
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://c7ba57bf-0418-4b66-89bb-d320b5cdd8e5@45.12.111.151:443?flow=xtls-rprx-vision&encryption=none&type=tcp&security=reality&fp=chrome&sni=store.steampowered.com&pbk=Z--Ieq3GtHx_Qtqj3NUyK5wY2foVBtlOkyzXqESeswU&sid=0c80cc39#[🇨🇭]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #sᴡɪᴛᴢᴇʀʟᴀɴᴅ(ᴄʜ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## sugoileaks — post 3978
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+LEAK: "THE ICEBLADE SORCERER SHALL RULE THE WORLD"
+
+
+Based On The Fantasy Adventure LN by Nana Mikoshiba & Riko Korie, Centers After winning a terrible war, Iceblade Sorcerer Ray White decides to enroll in Arnold Academy, but in the guise of a commoner, causing those with higher class upbringings to look down on him.
+Despite this, he manages to make friends quickly and must solve a conspiracy that plagues the school.
+</div>
+
+## sugoileaks — post 3977
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+LEAK: "OVERGEARED"
+
+
+Based On The Fantasy Action Adventure Manhwa By Park Saenal.
+
+SUMMARY:
+The Story Centers on Shin Youngwoo (a.k.a. Grid), an unlucky man in life and a low-level player in the popular VR game “Satisfy,” finds a powerful item that earns him a rare legendary class title: “Pagma’s Successor.”
+He’s now a skilled blacksmith who can forge unique weapons and equip the game’s most powerful gear.
+Grid resolves to use his new abilities to achieve fame and fortune, but as his very existence begins to stir up trouble in Satisfy, he realizes that life as a legend may be more than he bargained for….
+</div>
+
+## sugoileaks — post 3976
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3976_1778775761.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The real studio is on the list (:
+</div>
+
+## sugoileaks — post 3975
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3975_1778775761.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The real studio is on the list (:
+</div>
+
+## sugoileaks — post 3974
+
+
+
+
+## sugoileaks — post 3973
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3973_1778775762.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+First PV for upcoming romance fantasy light anime "SAVED BY THE ICE COLD PRINCE'S EMBRACE"
+
+The LA will premiere in July 2026!
+
+Studios: IMAGICA INFOS × IMAGEWORKS STUDIO
+FYI: Light anime meaning it's a manga panel anime meaning it's a manga panel with movement / voices / sound effects!
+
+Main Cast:
+Katrina | CV: Miku Ito
+Clarence | CV: Yohei Azakami
+
+Based On The Fantasy Romance Manga by Yakiimohokuhoku & Kusabi Kurokawa.
+
+SUMMARY:
+The Story Centers on Katrina, As the illegitimate daughter of a count and his maid, Katrina was born into miserable circumstances.
+And now that she's lost her mother, the treatment from her stepsister and stepmother the countess has only grown worse.
+One day, her stepsister receives a royal order to move to the northern outskirts due to her unseemly behavior at a recent party.
+There, she is to learn proper conduct under the tutelage of the resident prince, rumored to be a cruel man.
+Not wanting to subject her daughter to such punishment, the countess decides to send Katrina instead.
+Katrina arrives in the north shaking in fear.
+But contrhary to the stories, the "merciless and cold-hearted" prince is kinder than she believed.
+Might the pure-hearted Katrina find love in the wintry countryside?
+
+
+STAFF:
+Directors: Yūsuke Morishita & Stainlab
+Sound Director: Yoshiyuki Oguri
+Sound Production: ASLEBEN
+Sound Effects: Hiromune Kurahashi
+Coordinating Productio: Kazuya Takahashi
+Title Logo Design: Yukino Kinoshita & Bay Bridge Studio
+</div>
+
+## sugoileaks — post 3972
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3972_1778775764.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New FINAL PV for the upcoming anime movie 3 of "THE MONONOKE CHAPTER 3 - Snake God"
+
+The 3rd Movie will be out on May 29, 2026!!
+
+Studios: KAFKA × EOTA
+Director: Tomoaki Koshida
+</div>
+
+## sugoileaks — post 3971
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3971_1778775765.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New KV & PV for upcoming fantasy anime "THE CAT AND THE DRAGON" The anime will premiere in July 2026!! Studio: OLM Main Cast: Nekoryuu | CV: Takehito Koyasu Mama-nyan | CV: Kikuko Inoue Shirotae | CV: Fuka Izumi Kurobane | CV: Show Hayami Haibuchi | CV:…
+</div>
+
+## sugoileaks — post 3970
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3970_1778775766.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New KV & PV for upcoming fantasy anime "THE CAT AND THE DRAGON"
+
+The anime will premiere in July 2026!!
+
+Studio: OLM
+
+
+Main Cast:
+Nekoryuu | CV: Takehito Koyasu
+Mama-nyan | CV: Kikuko Inoue
+Shirotae | CV: Fuka Izumi
+Kurobane | CV: Show Hayami
+Haibuchi | CV: Noriaki Sugiyama
+Chiikuro | CV: Maki Kawase
+Kurotama | CV: Shinnosuke Tokudome
+
+New Cast:
+Gally | CV: Atsumi Tanezaki
+Anne Rossa | CV: Chika Anzai
+Stan | CV: Junya Enoki
+
+
+Based on The popular Fantasy Web Novel & Manga Series by Sasaki Izumi & Amara & Okuma Mai.
+
+SUMMARY:
+The Story Centers Many years ago, a dragon hatched inside a cave where a family Of cats lived.
+Encountering the baby dragon, the cats decide to raise it as one of their own.
+As years passed and the cats left him behind, he grows and vows to protect them.
+However, after seeing cats that were killed by humans for their fur, the dragon takes revenge, killing the adventurers who killed the cats.
+However, after an encounter with another cat, who reminded him of his past, he develops a cat-like form.
+
+
+STAFF:
+Director: Jinkoo Oh
+Series Comp: Mitsutaka Hirota
+Character Design: Rie Nishino & Chiaki Kurakazu
+Music: Takahiro Obata
+Sound Director: Noriyoshi Konuma
+</div>
+
+## sugoileaks — post 3969
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3969_1778775768.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+First KV&PV for the upcoming teasing Romcom Anime "MEDAKA KUROIWA IS IMPERVIOUS TO MY CHARMS" No Date Yet!! Studio: SynergySP Based on the Youth Romcom Manga by Kuze Ran, Centers on Mona, a class beauty who's trying her best to make Medaka, a stoic male…
+</div>
+
+## sugoileaks — post 3968
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3968_1778775769.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+First KV&PV for the upcoming teasing Romcom Anime "MEDAKA KUROIWA IS IMPERVIOUS TO MY CHARMS"
+
+No Date Yet!!
+
+Studio: SynergySP
+
+Based on the Youth Romcom Manga by Kuze Ran, Centers on Mona, a class beauty who's trying her best to make Medaka, a stoic male classmate fall in love with her.
+While she's gradually getting more & more frustrated that her tantalizing teasing has seemingly no effect on him, Medaka in turn is in fact having a tough internal struggle with himself.
+
+
+▼ SEASON 2 STAFF:
+Director: Yoshiaki Okumura
+🆕Series Comp. & Screenplay: Yoriko Tomita (Replacing Kazuyuki Fudeyasu)
+Character Design: Mayumi Watanabe
+Sound Directors: Noriyoshi konuma & Nozomi Nakatani
+Color Design: Aiko Yamagami
+🆕Director of Photography: Shinichiro Nagano (Replacing Tetsuya Nishimura)
+🆕Art Director: Hiroki Matsumoto (Replacing Masakazu Miyake)
+Music: Akiyuki Tateyama
+</div>
+
+## sugoileaks — post 3967
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3967_1778775770.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New PV for the upcoming original anime "MOBIUS DUST"
+
+The anime will premiere in July 2026!!
+
+ICYMI: The OG Anime Was first announced in 2019 as a part of Project ANIMA, along with Sakugan & Mahonare.
+
+Studio: DOGA KUBO
+Director: Tarou Iwasaki
+Series Comp.: Yoriko Tomita
+
+OP Titled "MEBIUS" By Leo Ieiri.
+
+Main Cast:
+Araki | CV: Yuto Takenaka
+Stella | CV: Nene Hieda
+Olga | CV: Haruka Sato
+
+SUMMARY:
+The Story is Set in 2000, Mobius meteorites fell on Earth and permeated atmosphere which led to economic disparity in Japan.
+Amidst that, police established the anti-RC special mobile unit & training school.
+Araki, Stella, & Olga are high school students living in a cozy downtown neighborhood.
+Playing games, visiting the bathhouse, and heading home - this is the story of their everyday lives… or is there more to it?
+</div>
+
+## sugoileaks — post 3966
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3966_1778775771.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New KV & PV for upcoming josei fantasy adventure anime "THE FORSAKEN SAINTESS AND HER FOODIE ROADTRIP IN ANOTHER WORLD" The Anime will Premiere in July 2026!! Studio: EMT SQUARED Theme Songs: OP Titled "BUTTERFLY" By INUWASI. ED Titled "HOLY SWEET HOME"…
+</div>
+
+## sugoileaks — post 3965
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3965_1778775772.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New KV & PV for upcoming josei fantasy adventure anime "THE FORSAKEN SAINTESS AND HER FOODIE ROADTRIP IN ANOTHER WORLD"
+
+The Anime will Premiere in July 2026!!
+
+Studio: EMT SQUARED
+
+Theme Songs:
+OP Titled "BUTTERFLY" By INUWASI.
+ED Titled "HOLY SWEET HOME" By ONKAN LEMONADE.
+
+Main Cast:
+Rin Takanashi | CV: Sora Tokui
+Vil | CV: Yuki Ono
+
+New Cast:
+Aria | CV: Sumire Morohoshi
+Ed | CV: Shoya Chiba
+Senon | CV: Shinnosuke Tachibana
+Gomamiso | CV: Kaede Hondo
+
+Based on The Josei Fantasy Adventure Romcom by Yoneari & Akane Nitou.
+
+SUMMARY:
+The Story Centers on Rin Takanashi, a Caregiver in her thirties, was unceremoniously discarded as "Trash" despite being summoned as a saint.
+However, as a lover of the great outdoors and all things camping, she was blessed with a special skill, [Survival], as well as another unique skill!
+Thus, a riveting tale begins: one of sweat, tears, and insatiable hunger as Rin, together with companions she picked up along the way, leisurely explores this parallel world and savours gourmet cuisine to her heart's content...
+Or so the story should have gone, but it looks like their road is going in an unexpected direction...?
+
+
+STAFF:
+Director: Atsushi Nigorikawa
+Series Comp.: Takashi Aoshima
+Character Design: Izumi Ishii
+Sound Director: Hiroto Morishita
+Sound Production: BIT GROOOVE PROMOTION.
+Music: Kana Utatane
+Music Production: LANTIS
+Production Cooperation: Ankichi Kobo
+</div>
+
+## sugoileaks — post 3964
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3964_1778775774.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+NEW INFO NEXT MONTH: "KUROIWA MEDALA IS IMPERVIOUS TO MY CHARMS"
+</div>
+
+## dangokimochi — post 11853
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11853_1778775775.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11852
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11852_1778775776.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## nextmemes — post 10742
+
+<div align="center">
+  <a href="telegram/content/nextmemes_10742_1778775776.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## KiranTimes — post 1091
+
+<div align="center">
+  <a href="telegram/content/KiranTimes_1091_1778775777.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## KiranTimes — post 1090
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1090_1778775777.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KiranTimes — post 1089
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1089_1778775777.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KiranTimes — post 1088
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1088_1778775778.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KiranTimes — post 1087
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1087_1778775778.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KiranTimes — post 1086
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1086_1778775779.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KiranTimes — post 1085
+
+<div align="center">
+  <a href="telegram/content/KiranTimes_1085_1778775780.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"بله ما متفاوت هستیم"
+</div>
+
+## KiranTimes — post 1084
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من مادر اون کانال میم و انیمه بامزه ای رو گاییدم که
+
+ارشانی که خودشو واسه اخوند همین الانشم دار میزنه و دارو دسته سپاهی مادرجنده
+
+اومدن پشت این کانال بامزه و با این عقیده (نه به ج ا و نه به مخالف ج ا)
+"بله ما متفاوت هستیم"
+
+کیر ج ا رو میکنن تو کس ننشون و رزمایش سپاهو تو کانالشون میذارن
+
+تماما پروفشونم انگار حاجی زاده و قآنی انتخاب کردن
+ولی طرف ج ا نیستن*
+</div>
+
+## cyberfiend666 — post 32727
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32727_1778775781.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32726
+
+<div align="center">
+  <a href="telegram/content/cyberfiend666_32726_1778775782.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## cyberfiend666 — post 32725
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32725_1778775785.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## khomeinichan — post 21420
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://www.youtube.com/watch?v=JRnoi3repjo
+</div>
+
+## Middle_East_Spectator — post 32073
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷 Iran’s Foreign Minister, Abbas Araqchi: ‘The Strait of Hormuz is open for anyone that isn’t an enemy of Iran. You just need to pay the tolls.’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32072
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇨🇳/🇮🇷 President Trump: ‘Chairman Xi is a great friend of mine. They [China] have promised they won’t send any military equipment to Iran’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32071
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇸🇦/🇺🇸/🇮🇷 NEW: Saudi Arabia told Trump the war in Iran should be ended and the Strait of Hormuz should be open, citing ‘immeasurable economic losses’ if the situation continues
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32070
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/🇸🇦 NEW: Saudi Arabia wants to sign a non-aggression pact with Iran @Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32069
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/🇨🇳/🇺🇸 NEW: Iran has started to allow Chinese ships to pass the Strait of Hormuz after paying tolls
+
+In China, where the FM said they reject the concept of tolls, the fee is being framed as a fee for ‘environmental and logistical upkeeping costs’.
+
+By allowing Chinese ships to transit the Strait of Hormuz, Iran has effectively neutralized the leverage that Trump held over China during his visit.
+
+Trump planned to pressure Iran, with the help of China, to open the Strait. But now that Chinese vessels are transiting freely, China won’t feel the need to be on board with this pressure.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32068
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/🇸🇦 NEW: Saudi Arabia wants to sign a non-aggression pact with Iran
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32066
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_32066_1778775786.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱/
+🇮🇷 WATCH: Two more FPV videos from Hezbollah, targeting soldiers and targeting a van
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32064
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱/
+🇮🇷 WATCH: In this video, Hezbollah carried out a combined FPV attack against multiple Israeli targets in southern Lebanon They struck an Israeli military SUV, killing those inside; they struck a Merkava tank, and they destroyed an IDF command truck.…
+</div>
+
+## Middle_East_Spectator — post 32063
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱/
+🇮🇷 WATCH: In this video, Hezbollah carried out a combined FPV attack against multiple Israeli targets in southern Lebanon
+
+They struck an Israeli military SUV, killing those inside; they struck a Merkava tank, and they destroyed an IDF command truck.
+
+In the video, the targets can be seen burning (filmed with other FPV drones), indicating successful hits.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32059
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱/
+🇮🇷 NEW: Hezbollah continues to upload videos of its FPV drone attacks against Israeli vehicles, showing a massive increase of hits in past weeks
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32058
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32058_1778775787.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇺🇸/🇮🇷 BREAKING: Iran has boarded and seized a vessel off the coast of Fujairah, UAE
+
+The vessel is being redirected towards Iranian territorial waters.
+
+@Middle_East_Spectator
+</div>
+
+## LiveMuseumOfIgnorancy — post 11508
+
+<div align="center">
+  <img src="telegram/content/LiveMuseumOfIgnorancy_11508_1778775788.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## DailyJapaneseThread — post 6700
+
+<div align="center">
+  <img src="telegram/content/DailyJapaneseThread_6700_1778775788.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## DailyJapaneseThread — post 6699
+
+
+
+
+## animenewsnetwork_feed — post 41608
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41608_1778775789.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Omniscient Reader's Viewpoint Volume 3 Novel Review
+
+When is a little knowledge more of a problem than none at all?
+</div>
+
+## animenewsnetwork_feed — post 41607
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41607_1778775789.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Manga UP! Global Adds The Cruel King I'm Marrying as a Substitute Bride is My First Love?! Manga
+
+English version launched on Wednesday
+</div>
+
+## animenewsnetwork_feed — post 41606
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41606_1778775789.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+This Week in Anime - Robots in Plain Sight
+
+Chris and Coop aren't technically violating the "no Transformers" rule if the robot cartoons are Korean, right?
+</div>
+
+## animenewsnetwork_feed — post 41605
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41605_1778775790.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+One Peace Books Licenses My Sweet Marriage to My Ex-Nemesis Manga
+
+1st volume ships in March 2027
+</div>
+
+## animenewsnetwork_feed — post 41604
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41604_1778775790.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+STARBITES Game Review
+
+There's a reliable, well-tuned motor under the hood of this title.
+</div>
+
+## animenewsnetwork_feed — post 41603
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41603_1778775791.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Always a Catch! ‒ Episode 7
+
+For everyone who’s been waiting to see Mimi use her hair pin as a weapon, this episode’s for you.
+</div>
+
+## animenewsnetwork_feed — post 41602
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41602_1778775791.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Saved by the Ice Cold Prince's Embrace Light Anime's Teaser Unveils Cast, Staff
+
+Miku Itō, Yōhei Azakami star in July light anime from I Want to Live a Long Life to Dote on My Favorite Stepbrother's Yūsuke Morishita
+</div>
+
+## animenewsnetwork_feed — post 41601
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41601_1778775792.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+3rd Mononoke Film Streams New Trailer
+
+Film opens in Japan on May 29
+</div>
+
+## animenewsnetwork_feed — post 41600
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41600_1778775792.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Medaka Kuroiwa is Impervious to My Charms 2nd Season Anime Unveils Teaser Video, Returning Cast, Staff Members
+
+Yoshiaki Okumura returns to direct 2nd season at SynergySP
+</div>
+
+## animenewsnetwork_feed — post 41599
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41599_1778775793.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The Cat and the Dragon Anime Reveals New Promo Video, More Cast Members
+
+Atsumi Tanezaki, Chika Anzai, Junya Enoki join cast of July anime
+</div>
+
+## animenewsnetwork_feed — post 41598
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41598_1778775793.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The Forsaken Saintess and Her Foodie Roadtrip in Another World TV Anime Reveals Trailer, Ending Theme Song, More Cast, Key Visual
+
+Onkan Lemonade performs ending theme song "Holy Sweet Home"
+</div>
+
+## animenewsnetwork_feed — post 41597
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41597_1778775794.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Mebius Dust TV Anime Unveils 1st Episode Preview, Main Cast Members, Opening Song Artist, July Debut
+
+Yuto Takenaka, Nene Hieda, Haruka Satō star in Dōga Kōbō's original anime
+</div>
+
+## animenewsnetwork_feed — post 41596
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41596_1778775794.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The Irregular at Magic High School: Yotsuba Succession Arc Film Debuts at #5, The Super Mario Galaxy Movie Drops to #2
+
+Love Live! Hasu no Sora Jogakuin School Idol Club Bloom Garden Party 3D anime film opens at #8
+</div>
+
+## animenewsnetwork_feed — post 41595
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41595_1778775795.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Seven Seas Licenses Pendulum: The Beastmen Omegaverse Saga, The Cat Who Didn't Believe in 'What-ifs,' Goetia Shock, More Titles
+
+Also licensed: Good Night, My Little Bird; The Tomorrow I Want to See with Kako: A Time-Loop Romantic Comedy; Wandmaker of the Ruined World; more
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 11:40
 ---
 
