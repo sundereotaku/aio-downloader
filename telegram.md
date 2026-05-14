@@ -7,6 +7,493 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 00:32
+---
+
+## Deamnet — post 26579
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ توی برنامه شیروخورشید . ایپی و دامنه زیر بزنید تا وصل بشه
+
+ip : 151.101.0.223
+sni : www.python.org
+
+
+🐸@DeamNet
+</div>
+
+## Deamnet — post 26578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+mitm-psiphon.zip
+</div>
+
+## Deamnet — post 26577
+
+<div align="center">
+  <a href="https://t.me/DeamNet/26577" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ برای ویندوز این روش به صورت یه پکیج گذاشتم آماده فقط کافیه سرتیفیکیت نصب و برنامه را اجرا کنید . آموزش پایین بخونید . 1-فایل certificate_generator.bat اجرا کنید تا سرتیفیکیت جدید ساخته بشه . اینتر بزنید تا از برنامه خارج بشه . 2-فایل mycert.crt که ساخته…
+</div>
+
+## Deamnet — post 26575
+
+<div align="center">
+  <a href="telegram/content/Deamnet_26575_1778792555.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ برای ویندوز این روش به صورت یه پکیج گذاشتم آماده فقط کافیه سرتیفیکیت نصب و برنامه را اجرا کنید . آموزش پایین بخونید . 1-فایل certificate_generator.bat اجرا کنید تا سرتیفیکیت جدید ساخته بشه . اینتر بزنید تا از برنامه خارج بشه . 2-فایل mycert.crt که ساخته…
+</div>
+
+## Configshub2 — post 1716944
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا وقتی اکی کنم کسی خواست کانفیگ بخره بره رباتمون
+
+@EkhMelli4Bot
+</div>
+
+## Configshub2 — post 1716943
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باز سرور به چوخ رف؟
+</div>
+
+## Configshub2 — post 1716942
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1716942" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1716941
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://4b616b6f-6f6c-4e65-7773-bff2e2048769@63.141.252.203:443?path=%2F&security=tls&encryption=none&insecure=1&type=ws&allowInsecure=1&sni=psychic-pancake-5vq6qr5jr5jrh4rvp-443.app.github.dev#[🏁]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ᴜɴɪᴛᴇᴅsᴛᴀᴛᴇs(ᴜs)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1716940
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#v2ray
+
+vless://4b616b6f-6f6c-4e65-7773-bff2e2048769@50.7.5.83:443?path=%2F&security=tls&encryption=none&insecure=1&type=ws&allowInsecure=1&sni=psychic-pancake-5vq6qr5jr5jrh4rvp-443.app.github.dev#[🇮🇪]t.me/ConfigsHub
+
+
+ᴄᴏᴜɴᴛʀʏ: #ɪʀᴇʟᴀɴᴅ(ɪᴇ)
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1716939
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1716939" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1716938
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1716938" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1716937
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1716937" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1716936
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1716936" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1716935
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1716935" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1716934
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1716934" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1716933
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1716933" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1716932
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1716932" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1716931
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1716931" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1716930
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1716930" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1716929
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1716929" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1716928
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1716928" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1716927
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1716927" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1716926
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1716926" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## Configshub2 — post 1716925
+
+<div align="center">
+  <a href="https://t.me/ConfigsHUB2/1716925" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#nV
+ᴄᴏɴғɪɢsʜᴜʙ ₪ ᴀʀɪʏᴀ ₪ ʙᴏᴛ ₪ ʜᴇʟᴘ
+</div>
+
+## sugoileaks — post 3980
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3980_1778792563.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The real studio is on the list (:
+</div>
+
+## sugoileaks — post 3979
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The real studio is on the list (:
+</div>
+
+## dangokimochi — post 11856
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11856_1778792563.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11855
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11855_1778792564.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11854
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11854_1778792565.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KiranTimes — post 1093
+
+<div align="center">
+  <a href="telegram/content/KiranTimes_1093_1778792566.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یهود جنگ طلب وحشی هایل هیتلر صابون حاجی اون میدونست چه جونواریی هستن
+</div>
+
+## KiranTimes — post 1092
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انبار نفت وقتی میزد که بارون قرار نبود بیاد:
+
+لااقل یه وقتی میزدین که قراره بارون بیاد اون همه اون موقع بارون میومد هوا پاک بشه میدونی چند نفر مشکل تنفسی گرفتن
+
+اسراییل وقتی جنگ شروع نمیکرد بعد ۷ اکتبر :
+اینم از اسراییل گنده گوزتون خایه اینکارا رو نداره کلی یهودی صابون کردیم هیچ گوهی نخورد بزودی غرب رو فتح میکنیم
+
+وقتی جنگ شروع کرد: یهود جنگ طلب وحشی هایل هیتلر صابون حاجی اون میدونست چه جونواریی هستن
+
+وقتی غیر نظامی نمیزنه تجمعاتشون بگاد:
+مردم غیور ما از بمب ترسی ندارن شیر بچه های حیدر از این مگسا نمیترسه
+
+وقتی غیر نظامی بزنه تجمعاتشون بگاد: یا حسین به کدامین گناه غرب و اروپا حقوق بشرشون این بود؟! به داد ما برسید
+
+پتروشیمی قبل عید میزد : کلی ادم توش بود یهودی قاتل
+
+پتروشیمی توی عید میزد : بخاطر کمبود مواد پتروشیمی عید ها هم کارگران کار میکردن خدا لعنتشون کنه وقت اضافه کاری سخت تو این اوضاع عید از دیدن زنو بچشون گذشته بودن بیان نون در بیارن یهود کشتشون
+
+اصلا اسراییلی وجود نداشت: یهود و صلیبی دشمن بشریته امریکا و اروپا و غرب باید نابود بشه
+
+اصلا غربی وجود نداشت: چین و روسیه به همت الله بزودی فتح خواهد شد کافر های بی خدا ایغور کش کمونیست و صلیبیون روس و قفقازی تکه تکه میکنیم
+
+اصلا کل دنیا مسلمون بود: سنی ها باید از روی زمین محو بشن وهابی های ناصبی حرامزاده به حق پهلوی فاطمه همشون میکشیم
+
+اصلا کل دنیا شیعه بود: پیروان ایت الله کصکشتانی به اصل ولایت باور ندارند ولایت پذیر نیستند خوارج و کافرن بزودی همشون میکشیم یا علی این حرامیان روی زمین جایی ندارند
+
+.........
+</div>
+
+## cyberfiend666 — post 32732
+
+<div align="center">
+  <a href="telegram/content/cyberfiend666_32732_1778792568.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## cyberfiend666 — post 32731
+
+<div align="center">
+  <a href="telegram/content/cyberfiend666_32731_1778792571.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## cyberfiend666 — post 32730
+
+<div align="center">
+  <a href="telegram/content/cyberfiend666_32730_1778792573.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## cyberfiend666 — post 32729
+
+<div align="center">
+  <a href="telegram/content/cyberfiend666_32729_1778792575.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## cyberfiend666 — post 32728
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32728_1778792577.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Middle_East_Spectator — post 32077
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32077_1778792577.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 NEW: Iran’s Parliament Speaker, Mohammad Baqer Qalibaf, calls Pete Hegseth a failed TV host & says he does nothing but LARP and cosplay as Secretary of War
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32076
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇮🇱/🇺🇸/🇮🇷 NEW: The IDF will enter the maximum state of alert, starting tomorrow, when Trump leaves China
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32075
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇮🇱/🇮🇷/🇺🇸 NEW: Israeli President Isaac Herzog has canceled his trip to New York next week due to 'circumstances preventing the visit at this time’ – Yedioth Ahronoth
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32074
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32074_1778792578.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇸🇾 NEW: Syria’s new Chargé d’Affairs in Washington D.C., Mohammad Qanatari, meeting with U.S. special envoy Tom Barrack
+
+@Middle_East_Spectator
+</div>
+
+## DailyJapaneseThread — post 6702
+
+<div align="center">
+  <img src="telegram/content/DailyJapaneseThread_6702_1778792579.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## DailyJapaneseThread — post 6701
+
+<div align="center">
+  <a href="telegram/content/DailyJapaneseThread_6701_1778792580.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+im currently tapped into japanese sopranos
+</div>
+
+## animenewsnetwork_feed — post 41613
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41613_1778792582.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Classroom for Heroes Manga's Final Volume Ships This Winter
+
+Manga launched in 2016
+</div>
+
+## animenewsnetwork_feed — post 41612
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41612_1778792583.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The Villainess Stans the Heroes' Tsubasa Takamatsu Launches New Manga
+
+Takamatsu to launch Nagasare Reijō ni Okuru Makeinu Ōji kara no Honki no Love Song manga on May 27
+</div>
+
+## animenewsnetwork_feed — post 41611
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41611_1778792583.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Gyōmuyōmochi Launches New Manga in July
+
+Artist to launch Mushagakuen Japanese fantasy manga
+</div>
+
+## animenewsnetwork_feed — post 41610
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41610_1778792584.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Silent Hill f Game Sells 2 Million Copies, Silent Hill 2 Remake Sells 6 Million Units Worldwide
+
+Silent Hill f launched for PS5, Xbox, PC in September 2025
+</div>
+
+## animenewsnetwork_feed — post 41609
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41609_1778792585.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Studio Ghibli to Appoint Kenichi Yoda as Its New President in June
+
+Current head Hiroyuki Fukuda to remain as board director, NTV Holdings president
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 19:52
 ---
 
