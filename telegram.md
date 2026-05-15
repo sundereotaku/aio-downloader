@@ -7,6 +7,493 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 13:35
+---
+
+## anime_news — post 10222
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"Iron Wok Jan!" TV anime main PV. Begins July 5
+</div>
+
+## anime_news — post 10221
+
+<div align="center">
+  <img src="telegram/content/anime_news_10221_1778839506.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"GATE 2: Tides of Conflict" is scheduled for 2027.
+</div>
+
+## anime_news — post 10220
+
+<div align="center">
+  <img src="telegram/content/anime_news_10220_1778839507.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The anime adaptation of "Omniscient Reader" is scheduled for 2027 according to BookWalker. (Not confirmed)
+</div>
+
+## Configshub2 — post 1716945
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+𝘾𝙤𝙣𝙛𝙞𝙜𝙨𝙃𝙪𝙗🖤 pinned «تا وقتی اکی کنم کسی خواست کانفیگ بخره بره رباتمون @EkhMelli4Bot»
+</div>
+
+## sugoileaks — post 3989
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3989_1778839508.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## sugoileaks — post 3988
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3988_1778839509.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+SUCCUBUS DEVIL GIRL × SAINTESS
+</div>
+
+## sugoileaks — post 3987
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3987_1778839510.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New KV & PV for upcoming fantasy romance anime "THE OBLIVIOUS SAINT CAN'T CONTAIN HER POWER: Forget My Sister! Turns Out I Was The Real Saint All Along!" Featuring Flora. The Anime will Premiere in July 2026!! Studios: MAGIC BUS × PICANTE CIRCUS. Director:…
+</div>
+
+## sugoileaks — post 3986
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3986_1778839511.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New KV & PV for upcoming fantasy romance anime "THE OBLIVIOUS SAINT CAN'T CONTAIN HER POWER: Forget My Sister! Turns Out I Was The Real Saint All Along!" Featuring Flora.
+
+The Anime will Premiere in July 2026!!
+
+Studios: MAGIC BUS × PICANTE CIRCUS.
+Director: Mitsutaka Noshitani
+Series Comp.: Toko Machida
+Character Design: Taihei Nagai
+Music: SUPA LOVE
+
+Theme Songs:
+OP Titled "WINDMAKER" By KAYA.
+ED Titled "UNKNOWN ME" by UTAHIME DREAM ALLSTARS.
+
+Main Cast:
+Carolina | CV: Rie Takahashi
+Edward | CV: Makoto Furukawa
+Flora | CV: Haruka ShiraishI
+
+New Cast:
+Teodore Garcia | CV: Shunichi Toki
+Marisa Kissinger | CV: Inori Minase
+
+
+Based on The Fantasy Romance LN by Almond &Yoshiro Ambe.
+
+SUMMARY:
+The Story Centers on The "Failed" daughter Of A Duke Lady Carolina, Whose Appearance & abilities are both mediocre, finds a warm "Place She Belongs" in an arranged political marriage.
+The excellent House of the Duchy of Sanchez has two daughters.
+The older sister, Flora, is a brilliant and talented holy maiden candidate.
+The younger sister, Carolina, is a plain and talentless dropout... In such circumstances, Carolina receives a marriage offer from the second prince of the neighbouring country to improve the nations' relations.
+However, her groom, the prince is rumoured to be savage and cruel.
+Carolina accepts thinking "If I can be of help," but her life completely changes upon marriage.
+Contrary to the gossip, she is fairly appraised by both the chivalrous prince and the empress, so she is accepted for herself?!
+</div>
+
+## sugoileaks — post 3985
+
+<div align="center">
+  <a href="telegram/content/sugoileaks_3985_1778839514.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New PV for upcoming chinese cuisine anime "IRON WOK JAN"
+
+The anime will premiere on July 5, 2026!!
+
+Studio: TROYCA
+
+OP Titled "FIRE BANQUET" by Seven-Member Dance Vocal Group GENIN WA JIBUN NI ARU.
+
+Main Cast:
+Jan Akiyama | CV: Kikunosuke Toya
+Kiriko Gobanchō | CV: Ikumi Hasegawa
+Takao Okonogi | CV: Kōhei Amasaki
+Narration: Kenjiro TeudA
+
+New Cast:
+Celene Yang | CV: M.A.O
+Kei Sawada | CV: Takahiro Sakurai
+Tomohide Jun | CV: Taishi Murata
+Yuji Kawahara | CV: Yusuke Kobayashi
+Nichido Otani | CV: Masuo Amada
+
+
+Based on the Over-The-Top Chinese Cuisine Cooking Battle Action Shonen Manga by Shinji Saijo which ran from 1995-2000 in 27 Volumes.
+
+SUMMARY:
+The story centers on a brilliant young chef named Jan Akiyama, who works at a top class restaurant where he is constantly challenging Kiriko Gobanchō, the granddaughter of the restaurant's owner and a great chef in her own right.
+While Kiriko believes that food should be made with the customer in mind, Jan believes that cooking should be used for competition.
+
+
+STAFF:
+Director: Ei Aoki
+Series Comp.: Makoto Uezu
+Character Design & Chief Animation Director: Masako Matsumoto
+Cuisine Animation Directors: Atsushi Okuda & Chihiro Hanamura
+Action Animator: Ryuuichi Makino
+Art Director: Ken Naitō
+Color Design: Mariko Shinohara
+Director of Photography: Ryosuke Tsuda
+CG Director: Mitsutaka Iguchi
+Editing: Shota Migiyama
+Cuisine Supervision & Coordinator: Takako Satō
+Cooking Science Supervision: Naoya Higuchi
+Sound Director: Jin Aketagawa
+Sound Effects: Masami Baba
+Music: Tomoki Kikuya
+</div>
+
+## sugoileaks — post 3984
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+NEW KV: "THE OBLIVIOUS SAINT CAN'T CONTAIN HER POWER"
+</div>
+
+## sugoileaks — post 3983
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3983_1778839517.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+New KV for the upcoming season 2 of the anime "GATE 2: Tides Of Conflict"
+
+The anime will premiere during next year!
+
+Studio: M2
+
+
+Based on Takumi Yanai's "Gate: Thus the Japanese Self-Defense Force Fought in Their Land" LN Series.
+
+Summary Of S2:
+Following the reopening of the mysterious 'GATE,' the Japanese Self-Defense Forces continue diplomatic and exploratory missions in the Special Region, a realm parallel to our world.
+When an American journalist is kidnapped in this region's troubled seas, an elite Japanese Maritime unit embarks on a high-stakes rescue mission.
+This new chapter of the acclaimed fantasy saga explores fresh adventures, diplomatic tensions, and thrilling action in a world beyond imagination.
+
+
+STAFF:
+Director: Tōru Takahashi
+Series Comp. & Script: Tatsuhiko Urahata
+Character Design: Shigeru Fujita
+Music: Yoshiaki Fujisawa
+Production: Kasagi Labo & Oshi & GENCO.
+</div>
+
+## sugoileaks — post 3981
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Rip Wakana Yamazaki (Ran's VA) on April 18, 2026🕊️
+
+Akemi Okamura (Nami's VA) will continue the role after her!
+</div>
+
+## KangZone — post 32247
+
+<div align="center">
+  <img src="telegram/content/KangZone_32247_1778839518.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KiranTimes — post 1100
+
+<div align="center">
+  <a href="telegram/content/KiranTimes_1100_1778839519.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرشان خایه مال
+</div>
+
+## KiranTimes — post 1099
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"مخصوصن"
+</div>
+
+## KiranTimes — post 1097
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"توییتای ضدامپریالیستیتون خیلی جالبه، مخصوصن اون‌جاش که به آدمکشی سپاه قدس توی سوریه می‌رسید و لالمونی می‌گیرید."
+</div>
+
+## KiranTimes — post 1096
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1096_1778839520.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنها رقیبی که تو گروهای خارجی داره منم
+چون شما بی خایه ها اونجا نیستید
+</div>
+
+## KiranTimes — post 1095
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنها رقیبی که تو گروهای خارجی داره منم
+چون شما بی خایه ها اونجا نیستید
+</div>
+
+## KiranTimes — post 1094
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فکت گاینده: آرشان خایه مال انگلیسی بلده و ماشین پروپاگاندا جنریتور بهتریه در مقایسه با خیلی از کسایی که بهش فحش میدن.
+
+اگر واقعا حالتون ازش به هم میخوره برید تو زمین بازی خودش باهاش بجنگید.
+</div>
+
+## Middle_East_Spectator — post 32096
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸
+🇮🇷
+🇨🇳
+⚡️ — President Trump says that Iran is not even able to reach the "nuclear dust" because "the mountain collapsed on it" and that only China and the U.S. can reach it.
+</div>
+
+## Middle_East_Spectator — post 32095
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_32095_1778839521.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸
+🇮🇷
+🇨🇳
+⚡️ — President Trump says that Iran is not even able to reach the "nuclear dust" because "the mountain collapsed on it" and that only China and the U.S. can reach it.
+</div>
+
+## Middle_East_Spectator — post 32094
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/🇺🇸/🇨🇳 Trump: ‘I told President Xi that Iran cannot have a nuclear weapon, they’re stone cold crazy’
+
+Reporter: ‘What did he say?’
+
+Trump: ‘Well, he’s not going to respond too much — he’s a pretty cool guy, he’s not gonna say ‘oh, that’s a good point’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32092
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump: ‘The people we are dealing with in Iran are rational, they’re very smart — better than the previous leaders’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32091
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_32091_1778839524.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷/🇮🇱 President Trump:
+
+‘I mean, you could make the case of why we’re even in [Iran].
+
+We’re doing it to help Israel.’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32090
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_32090_1778839526.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump:
+
+‘Iran has probably dug up some missiles from underground, they’ve rebuilt a little bit, we know exactly what they’re doing.
+
+It will all be gone within one day, what they’ve built up the past four weeks.’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32089
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_32089_1778839529.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump on Iran:
+
+‘I’m not going to be much more patient, no. They should make a deal, any sane person would. But they might be crazy.’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32088
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump: ‘Gas prices have only risen by a very small amount, and they’ll come down quickly’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32087
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷/🇨🇳 President Trump: ‘I told China that Iran cannot have a nuclear weapon, because they’re crazy people. They would have immediately nuked Israel and America.’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32086
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Iran is the last stand.
+</div>
+
+## Middle_East_Spectator — post 32083
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇨🇺 NEW: After months of pressure, blockade, subsequent fuel shortages and threats of regime change by the United States, the CIA director was invited to Havana for direct talks with Cuban officials
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32081
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱/🇱🇧 NEW: The IDF has started a massive project to place anti-drone netting on all its bases in southern Lebanon and northern Israel
+
+@Middle_East_Spectator
+</div>
+
+## animenewsnetwork_feed — post 41625
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41625_1778839532.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Expelled from Paradise Visual Novel Reveals Title, English Release
+
+Visual novel launches for Switch, Steam in winter 2026
+</div>
+
+## animenewsnetwork_feed — post 41624
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41624_1778839532.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Spyair Performs Opening Theme for The Exiled Heavy Knight Knows How to Game the System Anime
+
+Series airing for half year debuts on July 2
+</div>
+
+## animenewsnetwork_feed — post 41623
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41623_1778839533.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+GATE 2: Tides of Conflict Anime Unveils New Visual, Vocaloid Event Collaboration for Ending Song
+
+Winning submission for VOCALOID Collection Summer 2026 will be anime's ending song
+</div>
+
+## animenewsnetwork_feed — post 41622
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+3 Generations of Japanese Fans Welcome Star Wars' Return in Animated Short
+
+Actor Hideaki Itō narrates short that spans 48 years
+</div>
+
+## animenewsnetwork_feed — post 41621
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Detective Conan's Ran Mōri Voice Actress Wakana Yamazaki Dies at 61
+
+Yamazaki took hiatus from role earlier this year to undergo medical treatment; Akemi Okamura takes over role
+</div>
+
+## animenewsnetwork_feed — post 41620
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41620_1778839534.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+McDonald's Japan Rolls Out Saint Seiya Burgers
+
+Burn your Cosmos at McDonald's
+</div>
+
+## animenewsnetwork_feed — post 41619
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41619_1778839534.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Hirayasumi, Land, Tokyo Alien Bros., More Nominated for Eisner Awards
+
+Shintaro Kago 1-shots, Rintarō's autobiographical manga, Akira hardcover release also nominated
+</div>
+
+## animenewsnetwork_feed — post 41618
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41618_1778839535.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+hololive Alternative Project's Holoearth Game to End Service on June 28
+
+Game launched 1st public release in April 2025 after 3 years of limited beta testing
+</div>
+
+## animenewsnetwork_feed — post 41617
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41617_1778839536.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Patlabor EZY Anime Presents Trailer, Visual for 'File 2' Movie
+
+"File 2" compiling anime's 4th to 6th episodes opens on August 14
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 03:46
 ---
 
