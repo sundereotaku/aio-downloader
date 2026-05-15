@@ -7,6 +7,85 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 03:46
+---
+
+## Middle_East_Spectator — post 32080
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇨🇳/🇮🇷 Reporter: ‘How does the administration aim to lower gas prices?’
+
+Marco Rubio: ‘Iran cannot be allowed to have a nuclear weapon’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32079
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇨🇳/🇮🇷 Reporter: ‘What exactly did President Trump ask President Xi for when it comes to Iran?’
+
+Secretary of State Marco Rubio: ‘He didn’t ask him for anything. We’re not asking for China’s help, we don’t need their help. We made it clear that Iran cannot have a nuclear weapon.’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32078
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32078_1778804165.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇨🇳/🇮🇷 NEW: President Trump writes a long post praising Xi Jinping, and says Iran’s military decimation will ‘be continued’
+
+@Middle_East_Spectator
+</div>
+
+## DailyJapaneseThread — post 6703
+
+<div align="center">
+  <a href="telegram/content/DailyJapaneseThread_6703_1778804166.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## animenewsnetwork_feed — post 41616
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41616_1778804168.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Yū Miki's The Bateren Tales Manga Resumes on May 22
+
+Manga went on hiatus on February 6, starts final arc upon return
+</div>
+
+## animenewsnetwork_feed — post 41615
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41615_1778804169.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Odayaka Launches Manga Adaptation of Mashimesa Emoto's Novel Series
+
+Odayaka draws manga of Emoto's Goodbye, Horrible Fiancé, Hello, Fun Magic School Life! light novel series
+</div>
+
+## animenewsnetwork_feed — post 41614
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41614_1778804170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The Warrior Princess and the Barbaric King ‒ Episode 6
+
+This is a very boobful episode in some kind of weird ways.
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 00:32
 ---
 
