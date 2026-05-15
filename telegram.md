@@ -7,6 +7,229 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 00:14
+---
+
+## dangokimochi — post 11864
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11864_1778877848.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11863
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11863_1778877848.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11862
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11862_1778877849.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Irancirclejerks — post 1293
+
+<div align="center">
+  <a href="telegram/content/Irancirclejerks_1293_1778877850.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Peak
+</div>
+
+## KiranTimes — post 1112
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عشق و علاقه بین ملت فخیمه و سربلند اسرائیل و ایران
+</div>
+
+## KiranTimes — post 1111
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کون ننه بعضیا باید درد بگیره از این عشق و علاقه بین ملت فخیمه و سربلند اسرائیل و ایران
+</div>
+
+## KiranTimes — post 1110
+
+<div align="center">
+  <a href="telegram/content/KiranTimes_1110_1778877853.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## KiranTimes — post 1109
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1109_1778877853.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32735
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32735_1778877854.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32734
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32734_1778877855.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## cyberfiend666 — post 32733
+
+<div align="center">
+  <img src="telegram/content/cyberfiend666_32733_1778877856.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Link -> https://archive.org/details/the-punisher.-7z_202506
+Since The Punisher: One Last Kill got released recently, why not try it's video game adaptation by Volition which was so raw and violent it had to be censored in UK and Australia. My repack has widescreen fix and Gore patch as well, making it the most definitive experience on PC. It even runs flawlessly on steam deck. Just extract and Enjoy 😁😁😁
+
+🔗 RohanKar
+</div>
+
+## Middle_East_Spectator — post 32115
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇺🇸/🇮🇷 NEW: Iranian hackers have gained access to gas station monitors and systems across various U.S. states – CNN @Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32114
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇺🇸/🇮🇷 NEW: Iranian hackers have gained access to gas station monitors and systems across various U.S. states – CNN
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32111
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_32111_1778877857.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇮🇱/🇵🇸/
+🇵🇸 BREAKING: The IDF announces it carried out an assassination attempt against Izz Al-Din Al-Haddad, the commander of the Al-Qassam Brigades and leader of Hamas in the Gaza Strip @Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32109
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇮🇱/🇵🇸/
+🇵🇸 BREAKING: The IDF announces it carried out an assassination attempt against Izz Al-Din Al-Haddad, the commander of the Al-Qassam Brigades and leader of Hamas in the Gaza Strip
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32108
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32108_1778877860.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱/🇮🇷 Hebrew media: ‘Supreme Leader Mojtaba Khamenei is more radical than his father, and refuses to make any key concessions’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32107
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_32107_1778877860.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇱🇧
+❌
+🇮🇱 — Hezbollah has launched at least 10 drones from Lebanon toward the Galilee Panhandle in the last hour. 
+➡️ The IDF says impacts were recorded in Kiryat Shmona and Metula, though no injuries were reported. 
+➡️ The military says two drones have been…
+</div>
+
+## Middle_East_Spectator — post 32106
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_32106_1778877861.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇱🇧
+❌
+🇮🇱 — Hezbollah has launched at least 10 drones from Lebanon toward the Galilee Panhandle in the last hour.
+
+
+➡️ The IDF says impacts were recorded in Kiryat Shmona and Metula, though no injuries were reported.
+
+
+➡️ The military says two drones have been intercepted by air defenses while others struck open areas.
+</div>
+
+## animenewsnetwork_feed — post 41640
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41640_1778877862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Motoka Murakami Draws New 1-Shot for Musashi no Ken Manga After 40 Years
+
+1-shot will be manga's 1st new story since ending in 1985
+</div>
+
+## animenewsnetwork_feed — post 41639
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41639_1778877863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+'Even the Student Council Has Its Holes!' Manga Takes Break
+
+Artist Muchimaro focuses on health
+</div>
+
+## animenewsnetwork_feed — post 41638
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41638_1778877864.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Punk Gun Manga Ends
+
+Final chapter launches on May 21
+</div>
+
+## animenewsnetwork_feed — post 41637
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41637_1778877865.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Paru Itagaki's Beast Complex Manga Gets New 1-Shot
+
+New short story launches in summer
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 20:02
 ---
 
