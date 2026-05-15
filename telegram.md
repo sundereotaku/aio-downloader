@@ -7,6 +7,377 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 20:02
+---
+
+## Configshub2 — post 1716946
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+𝘾𝙤𝙣𝙛𝙞𝙜𝙨𝙃𝙪𝙗🖤 pinned «تا وقتی اکی کنم کسی خواست کانفیگ بخره بره رباتمون @EkhMelli4Bot»
+</div>
+
+## dangokimochi — post 11861
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11861_1778862728.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11860
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11860_1778862728.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11859
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11859_1778862729.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11858
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11858_1778862730.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11857
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11857_1778862730.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+wusuo240222
+</div>
+
+## Irancirclejerks — post 1292
+
+<div align="center">
+  <img src="telegram/content/Irancirclejerks_1292_1778862731.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیدار حضرت غم داوود باتیستا سلطان مردانگی غیرت مراپ و معرفت با آقا عباس
+</div>
+
+## Irancirclejerks — post 1291
+
+<div align="center">
+  <img src="telegram/content/Irancirclejerks_1291_1778862731.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🩷💖💝💅
+</div>
+
+## KiranTimes — post 1108
+
+<div align="center">
+  <a href="telegram/content/KiranTimes_1108_1778862732.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## KiranTimes — post 1107
+
+<div align="center">
+  <a href="telegram/content/KiranTimes_1107_1778862733.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محض اطلاع علاقه ما به اسراییل و نتانیاهو ام بخاطر روند بالانس کردنِ دستایِ خالیِ ماست در برابر اسلحه پر شما و بله این علاقه از ی دوستی و همکاری عادی بسیار بالاتر رفته.
+</div>
+
+## KiranTimes — post 1106
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1106_1778862734.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+و فرق ما با شما مادرجندها اینه حداقل با وجود اینکه سر اسلحه داعش شیعی رو سر ماست طی یکی دوسال وجودشو داریم با جمعیت میلیونی به خیابون ها بیایم و چندصد قلاده ازتونو بکشیم و کشته هایی بدیم که برامون عزیزن چون به تفکری که داریم پایبندیم نه " کسی که بدون اعتقاد…
+</div>
+
+## KiranTimes — post 1105
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+و فرق ما با شما مادرجندها اینه
+حداقل با وجود اینکه سر اسلحه داعش شیعی رو سر ماست
+طی یکی دوسال وجودشو داریم با جمعیت میلیونی به خیابون ها بیایم و چندصد قلاده ازتونو بکشیم و کشته هایی بدیم که برامون عزیزن
+چون به تفکری که داریم پایبندیم
+نه
+" کسی که بدون اعتقاد به اسلام یا تفکر چپی که دینی رو نمیشناسه بخاد ایت الله بعدی باشه"
+مادرگوه ها
+</div>
+
+## KiranTimes — post 1104
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1104_1778862734.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محض اطلاع علاقه ما به اسراییل و نتانیاهو ام بخاطر روند بالانس کردنِ دستایِ خالیِ ماست در برابر اسلحه پر شما و بله این علاقه از ی دوستی و همکاری عادی بسیار بالاتر رفته.
+</div>
+
+## KiranTimes — post 1103
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محض اطلاع علاقه ما به اسراییل و نتانیاهو ام
+
+بخاطر روند بالانس کردنِ دستایِ خالیِ ماست در برابر اسلحه پر شما
+
+و بله این علاقه از ی دوستی و همکاری عادی بسیار بالاتر رفته.
+</div>
+
+## KiranTimes — post 1101
+
+
+
+
+## Middle_East_Spectator — post 32105
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump: ‘We can keep the bridges and power plants in Iran, or we can destroy it all in two days’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32103
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32103_1778862735.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— Dear subscribers Do you also see how they’re trying to artificially divide Christians and Muslims? If we want to truly resist the evil in this world, we need to stand together as brothers. A peaceful Muslim-Christian alliance against tyranny, against opression…
+</div>
+
+## Middle_East_Spectator — post 32102
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32102_1778862735.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— Dear subscribers
+
+Do you also see how they’re trying to artificially divide Christians and Muslims? If we want to truly resist the evil in this world, we need to stand together as brothers.
+
+A peaceful Muslim-Christian alliance against tyranny, against opression and evil, for the liberation of Palestine. Our similarities have always outweighed our differences.
+
+Check out the Crescent-Cross Covenant Coalition on Instagram if you support this cause.
+
+(The Epstein cap is sarcasm)
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32101
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 U.S. Secretary of Energy, Chris Wright:
+
+‘The decision on the Strait of Hormuz is in Iran’s hands’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32100
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 President Trump on Iran:
+
+‘We might need to do a little clean up work, because we had a little month long ceasefire, as you’d call it.
+
+I wouldn’t have been really in favor of a ceasefire, we mostly did it at the request of other nations. We did it as a favor to Pakistan.’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32099
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 Reporter: ‘Did you reject Iran’s latest response to the U.S. proposal?’
+
+Trump: ‘I looked at it, and if I don’t like the first sentence I just throw it away.’
+
+Reporter: ‘What was the first sentence?’
+
+Trump: ‘An unacceptable sentence’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32098
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32098_1778862736.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇦🇪/🇸🇦/🇰🇼/🇧🇭/🇶🇦/🇮🇷 NEW: During the recent war, UAE leader Mohammed bin Zayed personally called the leaders of Bahrain, Kuwait, Qatar, and Saudi Arabia, proposing to form an Arab coalition against Iran, but every country refused – Bloomberg
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32097
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32097_1778862737.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱/🇦🇪 NEW: Israel stabs the UAE in the back for a second time, now revealing that not only Netanyahu visited Abu Dhabi, but also the IDF Chief of Staff, the head of Mossad, and the head of Shin Bet
+
+Israel’s arrogance and their need to brag is destroying the very relationship they are so proud of.
+
+Emirati officials are reportedly ‘outraged’ with the new revelation.
+
+@Middle_East_Spectator
+</div>
+
+## LiveMuseumOfIgnorancy — post 11509
+
+<div align="center">
+  <a href="telegram/content/LiveMuseumOfIgnorancy_11509_1778862737.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## animenewsnetwork_feed — post 41636
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41636_1778862738.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Patlabor EZY: File 1 Anime Film Review
+
+Patlabor EZY makes giant robots as boringly mundane as possible—and therein lies its brilliance.
+</div>
+
+## animenewsnetwork_feed — post 41635
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41635_1778862739.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+TBS' Sand B Company Acquires Xenotoon CG Anime Studio
+
+Studio that produced Genshō Yasuda's Make A Girl anime film to merge with Seven Arcs in mid-2027
+</div>
+
+## animenewsnetwork_feed — post 41634
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41634_1778862739.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+This Week in Games - Everyone Succumbs To Money
+
+The time has come — the Switch 2 will be going up in price — and we even know when. Jean-Karlo has the details.
+</div>
+
+## animenewsnetwork_feed — post 41633
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41633_1778862740.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Interview: Petals of Reincarnation Voice Actor Wakana Maruoka, Producer Takanori Matsuoka
+
+At Anime Boston, we caught up with Petals of Reincarnation producer Takanori Matsuoka and Haito’s voice actress Wakana Maruoka to talk about this new, dark, battle anime.
+</div>
+
+## animenewsnetwork_feed — post 41632
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41632_1778862740.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Black Torch TV Anime Reveals More Cast, Staff
+
+Anime based on Tsuyoshi Takaki's manga to debut on July 4
+</div>
+
+## animenewsnetwork_feed — post 41631
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41631_1778862741.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Gundam Franchise Unveils 50th Anniversary Short, 'Gundam-Con' Event Next January
+
+April 7 designated "Gundam Day," Tokyo's life-size Unicorn Gundam to be taken down in August
+</div>
+
+## animenewsnetwork_feed — post 41630
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41630_1778862741.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The Oblivious Saint Can't Contain Her Power TV Anime Reveals More Cast in 2nd Promo Video
+
+Shunichi Toki, Inori Minase join cast for July anime
+</div>
+
+## animenewsnetwork_feed — post 41629
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41629_1778862741.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Dr. STONE SCIENCE FUTURE ‒ Episode 31
+
+As much as I enjoy the rapid-fire scientific advancement part of Dr. Stone, sometimes that comes at the expense of meaningful character moments.
+</div>
+
+## animenewsnetwork_feed — post 41628
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41628_1778862742.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Gundam Seed Freedom Zero Prequel Anime Confirmed for Theatrical Release
+
+Anime was announced during Gundam Seed FREEDOM special screening in November 2024
+</div>
+
+## animenewsnetwork_feed — post 41627
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41627_1778862742.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Gundam Wing Franchise Gets 'New Visual Project'
+
+BNF board director Naohiro Ogata: Cannot reveal format, but "it is definitely something long"
+</div>
+
+## animenewsnetwork_feed — post 41626
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41626_1778862743.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Iron Wok Jan! Anime Reveals More Cast, July 5 Debut in Main Promo Video
+
+M.A.O, Taishi Murata, more join cast; Genin wa Jibun ni Aru performs opening theme
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 13:35
 ---
 
