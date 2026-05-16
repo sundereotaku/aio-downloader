@@ -7,6 +7,226 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 18:16
+---
+
+## dangokimochi — post 11866
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11866_1778942778.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11865
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11865_1778942778.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## KiranTimes — post 1125
+
+<div align="center">
+  <a href="telegram/content/KiranTimes_1125_1778942779.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابطتون رو با کیرانیا قطع کنین
+</div>
+
+## KiranTimes — post 1124
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر ذهنتون درگیر این باشه که «اگه فلان کار رو بکنم پس ارزشی منو تایید میکنه» ینی اطرافتون ارزشیا حضور دارن
+</div>
+
+## KiranTimes — post 1123
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابطتون رو با ارزشیا قطع کنین
+</div>
+
+## KiranTimes — post 1122
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر ذهنتون درگیر این باشه که «اگه فلان کار رو بکنم پس ارزشی منو تایید میکنه» ینی اطرافتون ارزشیا حضور دارن روابطتون رو با ارزشیا قطع کنین
+</div>
+
+## KiranTimes — post 1121
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابطتون رو با ارزشیا قطع کنین
+</div>
+
+## KiranTimes — post 1120
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر ذهنتون درگیر این باشه که «اگه فلان کار رو بکنم پس ارزشی منو تایید میکنه» ینی اطرافتون ارزشیا حضور دارن
+
+روابطتون رو با ارزشیا قطع کنین
+</div>
+
+## KiranTimes — post 1119
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابطتون رو با ارزشیا قطع کنین
+</div>
+
+## KiranTimes — post 1118
+
+<div align="center">
+  <a href="telegram/content/KiranTimes_1118_1778942780.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نصف کانتنت‌کریتورای این‌ور و اون‌ور سر اتفاقای دی‌ماه لال‌مونی گرفته بودن، حالا چون یه دریک نامی گفته she speaking farsi همه ذوق‌مرگ شدن و پشت هم ریلز و تیک‌تاک.
+</div>
+
+## KiranTimes — post 1117
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نصف کانتنت‌کریتورای این‌ور و اون‌ور سر اتفاقای دی‌ماه لال‌مونی گرفته بودن، حالا چون یه دریک نامی گفته she speaking farsi همه ذوق‌مرگ شدن و پشت هم ریلز و تیک‌تاک.
+</div>
+
+## KiranTimes — post 1116
+
+<div align="center">
+  <img src="telegram/content/KiranTimes_1116_1778942780.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+I went to the Iranian neighborhood to show my respect and saw that everyone had these monarchists flags 🤮 so I ended up shopping at a Turkish place instead 🧲🇹🇷💯
+</div>
+
+## Middle_East_Spectator — post 32128
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Something is going to happen, perhaps sooner than some may think.
+</div>
+
+## Middle_East_Spectator — post 32127
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+I sense a great disturbance in the force.
+</div>
+
+## Middle_East_Spectator — post 32124
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸 NEW: Cristopher Nolan’s new historical epic ‘The Odyssey’ is facing heavy backlash, after it was announced that the Greek hero Achilles will be played by transgender actor Elliot Page
+
+Additionally, the muse Helen of Troy will be played by African actress Lupita Nyong’o, and Greek goddess Athena will be played by the African-American actress Zendaya.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32123
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/🇦🇪 NEW: On Iranian TV, a military instructor came to teach people at home how to use a Kalashnikov rifle
+
+The news host decided to shoot at the flag of the United Arab Emirates, while an image of Dubai is seen burning in the background.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32122
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32122_1778942781.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Some are saying it’s AI, but it was posted by official news outlets, including Al-Arabiya.
+</div>
+
+## Middle_East_Spectator — post 32121
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32121_1778942781.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇷🇺/🇸🇾 NEW: Russia has delivered two MiG-29 fighter jets to the new Free Syrian Air Force, they arrived in Khmeimim Airbase today Deliveries were made at the request of Turkey in order to help with counter-terrorism and protection of airspace. This is being…
+</div>
+
+## Middle_East_Spectator — post 32120
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇷🇺/🇸🇾 NEW: Russia has delivered two MiG-29 fighter jets to the new Free Syrian Air Force, they arrived in Khmeimim Airbase today Deliveries were made at the request of Turkey in order to help with counter-terrorism and protection of airspace. This is being…
+</div>
+
+## Middle_East_Spectator — post 32119
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_32119_1778942782.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇷🇺/🇸🇾 NEW: Russia has delivered two MiG-29 fighter jets to the new Free Syrian Air Force, they arrived in Khmeimim Airbase today
+
+Deliveries were made at the request of Turkey in order to help with counter-terrorism and protection of airspace.
+
+This is being reported by various mainstream outlets, despite Syrian accounts claiming the video to be AI.
+
+@Middle_East_Spectator
+</div>
+
+## animenewsnetwork_feed — post 41651
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41651_1778942783.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Ramparts of Ice ‒ Episode 7
+
+With every episode, I appreciate Ramparts of Ice's refusal to fall back on expected relationship dynamics more and more.
+</div>
+
+## animenewsnetwork_feed — post 41650
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41650_1778942784.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Dorohedoro Season 2 ‒ Episode 9
+
+Shin and Noi are my OTP. They are hard-working, cold-blooded killers, and together, they make the cutest couple I've ever seen.
+</div>
+
+## animenewsnetwork_feed — post 41649
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41649_1778942784.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Reborn!, Irregular at Magic High School, Duel Masters Creators Collaborate on Horo-Beat Manga
+
+"Thrilling tag-team battle" manga launched on Friday
+</div>
+
+## animenewsnetwork_feed — post 41648
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41648_1778942785.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Go For It, Nakamura-kun!! ‒ Episode 8
+
+I felt icky by the end of this episode.
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 14:51
 ---
 
