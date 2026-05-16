@@ -7,6 +7,166 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 23:44
+---
+
+## Deamnet — post 26583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛡 پراکسی برای سایفون
+
+Host : 37.202.232.125
+Port : 1080
+
+—
+</div>
+
+## dangokimochi — post 11871
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11871_1778962473.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11870
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11870_1778962473.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## dangokimochi — post 11869
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11869_1778962474.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Middle_East_Spectator — post 32141
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32141_1778962475.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇮🇱 BREAKING: Huge explosion in Beit Shemesh, Israel @Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32140
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇮🇱 BREAKING: Huge explosion in Beit Shemesh, Israel @Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32139
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_32139_1778962476.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇮🇱 BREAKING: Huge explosion in Beit Shemesh, Israel
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32138
+
+<div align="center">
+  <a href="telegram/content/Middle_East_Spectator_32138_1778962478.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷 NEW: Iranian TV channels continue to explain how to use assault rifles to the population, as part of the national combat preparedness initiative @Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32135
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷 NEW: Iranian TV channels continue to explain how to use assault rifles to the population, as part of the national combat preparedness initiative
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32134
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32134_1778962481.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷
+🇨🇳
+⚡️ — Iranian Parliament Speaker Ghalibaf:
+The world stands at the cusp of a new order.
+
+As President Xi said “The transformation unseen in a century is accelerating across the globe,” and I emphasize that the Iranian nation’s 70-day resistance has accelerated this transformation.
+
+The future belongs to the Global South.
+</div>
+
+## Middle_East_Spectator — post 32133
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+A list of things nobody cares about:
+
+- Eurovision
+- Keir Starmer
+- The war in Ukraine
+- Morocco
+- The World Cup
+- Matcha
+
+You’re welcome
+</div>
+
+## DailyJapaneseThread — post 6711
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❗️Южная Корея с 2027 года полностью запретит употребление собачьего мяса
+
+Будет официально запрещено разведение, забой и продажа собак в пищу. Соответствующее заявление выпустило министерство сельского хозяйства Южной Кореи.
+
+По данным ведомства, подавляющее большинство ферм, занимавшихся этим бизнесом, уже прекратили свою работу — их доля на данный момент составляет 82%.
+</div>
+
+## DailyJapaneseThread — post 6710
+
+<div align="center">
+  <img src="telegram/content/DailyJapaneseThread_6710_1778962482.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## DailyJapaneseThread — post 6709
+
+<div align="center">
+  <a href="telegram/content/DailyJapaneseThread_6709_1778962483.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## animenewsnetwork_feed — post 41658
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41658_1778962486.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Bite Maker AK Manga Ends
+
+Final chapter to be published on May 30
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 21:15
 ---
 
