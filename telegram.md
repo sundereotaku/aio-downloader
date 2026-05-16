@@ -7,6 +7,91 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 14:51
+---
+
+## anime_news — post 10223
+
+<div align="center">
+  <img src="telegram/content/anime_news_10223_1778930478.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Special short "My Hero Academia: I am a hero too" begins streaming in Japan on August 3.
+</div>
+
+## Deamnet — post 26582
+
+<div align="center">
+  <a href="https://t.me/DeamNet/26582" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ShirOKhorshid-2026.05.14 (1).apk
+</div>
+
+## sugoileaks — post 3993
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3993_1778930479.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The Special short Anime "MY HERO ACADEMIA: I am a hero too" begins broadcasting in Japan on August 3!!
+
+The Prior to streaming & screening in Japan, the short will premiere as part of the "My Hero Academia Special Event" at Anime Expo 2026 this July & it'll adapt the One-Shot Manga Featuring Eri included in the Ultra Age Fanbook.
+
+
+ONE-SHOT SUMMARY:
+The One-shot is Centers on Eri, the girl Deku rescued, has grown up and is now a high school student.
+In the final episode, she was seen smiling with a guitar case on her back. Now, she visits U.A. High School and is determined to pursue her dream once again.
+</div>
+
+## sugoileaks — post 3992
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+news soon
+</div>
+
+## Deep_iranian_web — post 18588
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعرفه: پلن ۵ گیگ ۷۵۰ (گیگی ۱۵۰) پلن ۱۰ گیگ ۱۴۰۰ (گیگی ۱۴۰) برای اولین خرید: ۵ گیگ ۶۵۰ (گیگی ۱۳۰) ۱۰ گیگ ۱۲۰۰ (گیگی ۱۲۰) همه پلن ها ساب دارن ضریب دار نیستن روی پیسی هم وصل میشه محدودیت کاربر ندارن زمانشونم ۳۰ روزه ایدی ادمین ‎@Supervqnadmin ‏⚠️ ─────────────────────…
+</div>
+
+## Deep_iranian_web — post 18587
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعرفه:
+پلن ۵ گیگ ۷۵۰ (گیگی ۱۵۰)
+پلن ۱۰ گیگ ۱۴۰۰ (گیگی ۱۴۰)
+برای اولین خرید:
+۵ گیگ ۶۵۰ (گیگی ۱۳۰)
+۱۰ گیگ ۱۲۰۰ (گیگی ۱۲۰)
+
+همه پلن ها ساب دارن
+ضریب دار نیستن
+روی پیسی هم وصل میشه
+محدودیت کاربر ندارن
+زمانشونم ۳۰ روزه
+ایدی ادمین ‎@Supervqnadmin
+‏⚠️ ─────────────────────
+این سرویس بدون گارانتی ارائه میشه. ممکنه اتصال قطع بشه یا مشکلی پیش بیاد.
+تلاش می‌کنیم سرویس رو تا حد امکان پایدار نگه داریم و مشکلات رو سریع برطرف کنیم.
+‏─────────────────────
+@supervqn
+</div>
+
+## Deep_iranian_web — post 18586
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همیشه مالک گفت این بار من میگم
+تا سه ماه دیگه منتظر خبر شگفتی باشین
+#شطرنج_برره‌ای
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 11:01
 ---
 
