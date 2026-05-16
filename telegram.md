@@ -7,6 +7,90 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 02:05
+---
+
+## Deamnet — post 26588
+
+<div align="center">
+  <a href="telegram/content/Deamnet_26588_1778970910.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎃حداقل سریع اون نسخه که از اون کانال نصب کردید پاک کنید . من خیلی شانسی به این مورد برخورد کردم . ایشالا که اشتباه فکر میکنیم .
+😈
+</div>
+
+## Deamnet — post 26586
+
+<div align="center">
+  <a href="telegram/content/Deamnet_26586_1778970910.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چند نفرتون به این پست توجه و عمل کردید ؟
+</div>
+
+## Deamnet — post 26584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛡هر آپدیت جدید که از برنامه ها منتشر میشه دردسر جدید هست که اونو دانلود کنیم . ولی اگه مجبور بودید که از لینک های داخلی که معلوم نیس کی اونجا آپلود کرده استفاده کنید . برای مطمعن بودن اینکه فایل اصلی هست بهترین و مطمعن ترین راه هش (Hash) کردن اون فایل و مقایسه…
+</div>
+
+## dangokimochi — post 11872
+
+<div align="center">
+  <img src="telegram/content/dangokimochi_11872_1778970910.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Middle_East_Spectator — post 32144
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱 CONFIRMED: It was a controlled demolition of unexploded ordnance, according to KANN
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32143
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇮🇱 NEW: The IDF is preventing ambulances and firefighter from reaching the site of the explosion
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32142
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇮🇱 More footage of the explosion @Middle_East_Spctator
+</div>
+
+## DailyJapaneseThread — post 6712
+
+<div align="center">
+  <img src="telegram/content/DailyJapaneseThread_6712_1778970911.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## animenewsnetwork_feed — post 41659
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41659_1778970912.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Darkroom Adds Haré+Guu Deluxe Anime
+
+Haré+Guu Deluxe available with English dub
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 23:44
 ---
 
