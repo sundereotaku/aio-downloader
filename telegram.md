@@ -7,6 +7,153 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 21:15
+---
+
+## dangokimochi — post 11868
+
+<div align="center">
+  <a href="telegram/content/dangokimochi_11868_1778953524.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## dangokimochi — post 11867
+
+
+
+
+## Middle_East_Spectator — post 32132
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇮🇷 Reporter: ‘We’ve seen in the past and until now that military pressure does not seem to change Iran’s stance in the negotiations’
+
+Marco Rubio: ‘We believe it’s going to work this time. If necessary, we’re willing to go in again and do what’s needed to bring them to the table’
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32131
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇺🇸/🇦🇪/🇮🇷 NEW: Senior Trump administration officials have encouraged the UAE to become more involved in the war against Iran, including by invading Iranian islands in the Persian Gulf – The Telegraph
+
+Note that Iran and the UAE have an outstanding territorial dispute over the strategic Tunb and Abu Musa islands, located in the middle of the Persian Gulf — currently administered by Iran.
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32130
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 
+🇮🇷/🇮🇱/🇱🇧 NEW: Hezbollah announces that if Lebanon and Israel reach a comprehensive ceasefire agreement, Hezbollah will not consider Israeli bases and troops occupying Lebanese territory to be a part of it
+
+@Middle_East_Spectator
+</div>
+
+## Middle_East_Spectator — post 32129
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32129_1778953527.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇷/🇹🇷 NEW: Turkish Foreign Minister Hakan Fidan and Ali Bagheri Kani, Deputy Secretary of Iran's Supreme National Security Council, met in Istanbul on Saturday
+
+No details on the meeting were provided.
+
+@Middle_East_Spectator
+</div>
+
+## DailyJapaneseThread — post 6708
+
+<div align="center">
+  <img src="telegram/content/DailyJapaneseThread_6708_1778953528.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## DailyJapaneseThread — post 6707
+
+<div align="center">
+  <a href="telegram/content/DailyJapaneseThread_6707_1778953529.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## animenewsnetwork_feed — post 41657
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41657_1778953531.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Unico: LOST Volume 3 Manga Review
+
+I feel like this book suffers a little bit by just having things or ideas brought up out of nowhere with very little fanfare.
+</div>
+
+## animenewsnetwork_feed — post 41656
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41656_1778953532.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+'Babies of Bread' Anime Short Gets TV Series
+
+Stop-motion series debuts on July 4
+</div>
+
+## animenewsnetwork_feed — post 41655
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41655_1778953533.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The Ogre's Bride Anime's Trailer Unveils More Cast
+
+Taito Ban, Nobunaga Shimazaki, Aya Endō join cast of July series
+</div>
+
+## animenewsnetwork_feed — post 41654
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41654_1778953534.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Snowball Earth ‒ Episode 7
+
+The animation decisions in this show continue to baffle me.
+</div>
+
+## animenewsnetwork_feed — post 41653
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41653_1778953534.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+MangaGamer to Release Umineko When They Cry - Saku Game in West
+
+Company to also release Secret Affairs: Sweaty Midsummer Rut game, Beat Valkyrie Ixseal physically on USB
+</div>
+
+## animenewsnetwork_feed — post 41652
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41652_1778953535.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Haru Hisakawa's Takara Shimai Manga Ends, Gets English Release on Manga UP!
+
+Manga launched in January 2025, ended on Friday
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 18:16
 ---
 
