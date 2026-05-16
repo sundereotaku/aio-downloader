@@ -7,6 +7,115 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 11:01
+---
+
+## sugoileaks — post 3991
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3991_1778916710.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The Princess Project Vol.6: Thumbelina For Ongoing S2 of The Youth Romcom Anime "THE ANGEL NEXT DOOR SPOILS ME ROTTEN" EP6 Aired Yesterday!! New Project KV Will Be Released Every Friday!! Studio: PROJECT NO.9
+</div>
+
+## sugoileaks — post 3990
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3990_1778916711.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+news soon
+</div>
+
+## LiveMuseumOfIgnorancy — post 11515
+
+<div align="center">
+  <img src="telegram/content/LiveMuseumOfIgnorancy_11515_1778916712.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## LiveMuseumOfIgnorancy — post 11514
+
+<div align="center">
+  <img src="telegram/content/LiveMuseumOfIgnorancy_11514_1778916712.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## LiveMuseumOfIgnorancy — post 11513
+
+<div align="center">
+  <img src="telegram/content/LiveMuseumOfIgnorancy_11513_1778916713.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## LiveMuseumOfIgnorancy — post 11512
+
+<div align="center">
+  <img src="telegram/content/LiveMuseumOfIgnorancy_11512_1778916713.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## LiveMuseumOfIgnorancy — post 11511
+
+<div align="center">
+  <img src="telegram/content/LiveMuseumOfIgnorancy_11511_1778916713.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## LiveMuseumOfIgnorancy — post 11510
+
+<div align="center">
+  <img src="telegram/content/LiveMuseumOfIgnorancy_11510_1778916714.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## animenewsnetwork_feed — post 41647
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41647_1778916715.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Witch on the Holy Night Anime Film Reveals Returning Main Cast
+
+Haruka Tomatsu, Kana Hanazawa, Yūsuke Kobayashi star in film opening later this year
+</div>
+
+## animenewsnetwork_feed — post 41646
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41646_1778916715.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Voice Actor Aoi Nagatsuki's Agency Addresses Photos Taken, Posted Without Her Permission
+
+Amuleto agency: "We have confirmed the images were taken and released without permission"
+</div>
+
+## animenewsnetwork_feed — post 41645
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41645_1778916715.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Cyborg 009: Nemesis Anime Casts Yūki Kaji as Joe Shimamura
+
+9 cast members for Nemesis group also revealed
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 03:13
 ---
 
