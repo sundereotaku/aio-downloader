@@ -7,6 +7,103 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 11:29
+---
+
+## sugoileaks — post 3995
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3995_1779004754.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## sugoileaks — post 3994
+
+<div align="center">
+  <img src="telegram/content/sugoileaks_3994_1779004755.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"GODDESS OF VICTORY: NIKKE" is receiving a series of animated shorts titled "OUTPOST: Off-Duty Tales"
+
+EP1 is scheduled to premiere next Friday, on May 22, 2026!!
+
+The announcement didn't specify any staff or the studio, but More Eps & updates will be revealed soon!!
+</div>
+
+## Middle_East_Spectator — post 32146
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32146_1779004755.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+—❗️🇮🇱 NEW: After initially reporting that it was a controlled explosion, Hebrew media now begin to speculate that an explosion took place in Sdot Micha Airbase, around the area where surface-to-air Arrow-3 missiles are stored It is reporter that one of the…
+</div>
+
+## Middle_East_Spectator — post 32145
+
+<div align="center">
+  <img src="telegram/content/Middle_East_Spectator_32145_1779004756.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+— 🇮🇱 UPDATE: It was a controlled explosion at a military site, according to KANN @Middle_East_Spectator
+</div>
+
+## LiveMuseumOfIgnorancy — post 11516
+
+<div align="center">
+  <img src="telegram/content/LiveMuseumOfIgnorancy_11516_1779004757.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## animenewsnetwork_feed — post 41663
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41663_1779004757.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Detective Conan Cast/Staff Offer Condolences After Ran Mōri Voice Actress Wakana Yamazaki's Death
+
+Renowned voice actress died on April 18 at 61
+</div>
+
+## animenewsnetwork_feed — post 41662
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41662_1779004758.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Drecom Announces New Indie Game Studio
+
+Drecom Creators Studio to support development of titles, expansion into mixed media
+</div>
+
+## animenewsnetwork_feed — post 41661
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41661_1779004758.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Japanese Animation TV Ranking, April 27-May 3
+
+My Hero Academia: More special ranks at #4
+</div>
+
+## animenewsnetwork_feed — post 41660
+
+<div align="center">
+  <img src="telegram/content/animenewsnetwork_feed_41660_1779004759.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Daemons of the Shadow Realm Anime Adds 2 Cast Members
+
+Series casts Kappei Yamaguchi as Hikaru, Yoshiko Sakakibara as Kai
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 02:05
 ---
 
